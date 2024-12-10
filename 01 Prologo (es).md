@@ -1,32 +1,39 @@
-En el suroeste del Monte Aris, a cientos de leguas en medio del mar, se encuentra el archipiélago Sparkor. Este conjunto de islas se extiende en forma de daga sobre el gran océano, destacando en ambos extremos dos islas muy distintas entre sí: la gran isla volcánica de Rou y la paradisiaca isla de Vaneisy.
 
-Vaneisy, célebre por su exuberante fauna y su selva tropical, es un destino ideal para exploradores y turistas en busca de un paraíso natural. Su clima soleado y sus playas de arena blanca, bañadas por un mar turquesa, la convierten efectivamente en un paraíso en la tierra.
+Aquí está el fragmento editado para mejorar la claridad, fluidez y corrección gramatical, respetando el uso de las comillas dobles:
 
-En contraste, Rou presenta una morfología de terreno totalmente opuesta. Con colinas de granito y basalto rodeadas por ríos de lava que descienden de un volcán activo, el clima es constantemente tormentoso, exacerbado por la actividad sísmica que periódicamente causa terremotos y tsunamis en sus alrededores. A esto ya no es necesario sumar la fauna hostil del lugar, para entender por qué es considerada como un 'pedacito' del infierno en la tierra.
+En el suroeste del Monte Aris, a cientos de leguas mar adentro, se encuentra el archipiélago Sparkor. Este conjunto de islas, extendido en forma de daga sobre el vasto océano, alberga en sus extremos dos islas muy diferentes entre sí: la gran isla volcánica de Rou y la paradisíaca isla de Vaneisy.
 
-Pero a pesar de todas estas condiciones adversas, Rou es la isla más habitada del archipiélago Sparkor, debido a la gran actividad minera generada por la excepcional cantidad de gemas y minerales únicos que se encuentran en su superficie. El interior del volcán es un paraíso geológico que proporciona a los habitantes de la isla la riqueza necesaria para sobrevivir y prosperar en un lugar tan inhóspito. La gran ciudad y los puertos del lado norte de la isla son prueba de esta bonanza.
+Vaneisy, famosa por su exuberante fauna y selva tropical, es un destino ideal para exploradores y turistas en busca de un refugio natural. Su clima soleado y sus playas de arena blanca, bañadas por un mar turquesa, la convierten en un verdadero paraíso terrenal.
 
-Y, muy por encima de la ciudad minera y los abarrotados puertos de la gran ciudad, se alza el magnífico castillo real de Abigail. El castillo, hecho de oro y granito rojo brillante, sin contar sus torres laterales y anexos, fácilmente triplicaría el tamaño del homólogo Castillo de Canterlot. Si su tamaño, diseño y colores no fueran suficientes para impresionar al visitante, también destaca el hecho de que está construido sobre una montaña flotante que se eleva ligeramente por encima de la isla.
+En contraste, Rou ofrece un paisaje completamente opuesto. Sus colinas de granito y basalto, rodeadas de ríos de lava que fluyen desde un volcán activo, están envueltas en un clima perpetuamente tormentoso. Este entorno, ya de por sí desafiante, se ve agravado por la actividad sísmica que sacude regularmente la región. Como si esto no fuera suficiente, la isla alberga una fauna hostil que refuerza su reputación como un "pedacito del infierno en la tierra".
 
-Contemplar desde arriba el centro de gobierno y capital del pequeño reino de Rou genera una vista impresionante.
+Y, aun así, a pesar de sus condiciones adversas, Rou es la isla más habitada del archipiélago Sparkor. Esto se debe en gran medida a la intensa actividad minera que se desarrolla en su superficie, ya que la isla es un paraíso geológico rico en gemas y minerales únicos en el mundo.
 
-Indudablemente, es impresionante. Y si alguien le preguntara a Fluttershy, quien se encontraba en uno de los balcones del castillo, si se siente impresionada, ella respondería con fuerza que sí, pero también confesaría que estaba aterrorizada.
+Tal es la riqueza del lugar que incluso el interior del volcán activo es explotado con fines mineros. Todo esto ocurre con pleno conocimiento de los habitantes, quienes, en su búsqueda de riquezas, están dispuestos a arriesgar sus vidas para alcanzar la prosperidad en este entorno tan inhóspito. La gran ciudad y los abarrotados puertos situados al norte de la isla son un claro testimonio de la bonanza y la determinación de su gente.
 
-"Esto no está funcionando", se dijo a sí misma la indefensa pegaso con voz baja. Había salido al balcón para ver el atardecer y distraerse, pero la visión apocalíptica de la ciudad y los remolinos de lava debajo de ella, que se asemejaban a ojos gigantes de aspecto grotescos, no hicieron más que aumentar su estrés.
+Y, por encima de la bulliciosa ciudad minera y sus concurridos puertos, se alza el majestuoso castillo real de Abigail. 
 
-A sus delicados oídos llegaba la aullante voz del viento, acompañada del distante crujido  de rocas desprendiéndose en los peñascos y el constante gorgoteo de la lava deslizándose por las colinas. Incapaz de soportar más aquel ambiente sobrecargado, la pegaso decidió regresar al castillo.
+Construido con oro y granito rojo brillante, el castillo, sin incluir sus torres y anexos, es fácilmente tres veces más grande que el homologo Castillo de Canterlot. Si su tamaño, diseño y colores no fueran lo suficientemente impresionantes, también destaca el hecho de que está erigido sobre una montaña flotante que se eleva ligeramente por encima de la isla.
 
-Sin embargo, solo sus patas delanteras se movieron. La parte inferior de su cuerpo parecía haberse adherido a la pétrea superficie del suelo.
+Contemplar desde lo alto de sus torres el corazón del gobierno y la capital del pequeño reino de Rou es una experiencia sencillamente impresionante.
 
-Fluttershy frunció el ceño. Viejos miedos comenzaron a morder nuevamente sus flancos.
+Sin lugar a dudas, así es. Y si alguien le preguntara a Fluttershy, quien se encontraba en uno de los balcones del castillo, si estaba impresionada, ella respondería con firmeza que sí, pero también confesaría que estaba aterrorizada.
 
-Cerró los ojos y dio una exhalación profunda. Limpió su mente y comenzó a concentrarse. Empezó a visualizar su hogar, sus compañeros del bosque, sus amigos en Ponyville y, sobre todo, en las cinco amigas que tantas veces la habían apoyado.
+"Esto no está funcionando", murmuró para sí misma la indefensa pegaso con voz temblorosa. Había salido al balcón para observar el atardecer y distraerse, pero la visión apocalíptica de la ciudad y los remolinos de lava bajo sus ojos, que se asemejaban a orbes grotescos y brillantes, no hicieron más que incrementar su ansiedad.
 
-Poco a poco, la rigidez en sus patas traseras disminuyó. De pronto, como si se hubiera liberado de una trampa, dio unos torpes pasos hacia adelante.
+A sus delicados oídos llegaban los aullidos del viento, el lejano crujido de rocas que se desprendían de los peñascos y el constante burbujeo de la lava deslizándose por las colinas. Incapaz de soportar más aquel ambiente opresivo, Fluttershy decidió regresar al interior del castillo.
 
-"Uff... qué alivio", dijo Fluttershy con una sonrisa esperanzadora mientras agitaba ligeramente sus patas inferiores. Sus extremidades estaban bien de nuevo. Por ahora.
+Sin embargo, solo sus patas delanteras respondieron. La parte inferior de su cuerpo parecía haberse adherido al frío y pétreo suelo del balcón.
 
-Sin prestar más atención al terrorífico mundo exterior, Fluttershy regresó a su habitación.
+Fluttershy frunció el ceño mientras viejos temores comenzaban a morder nuevamente sus flancos.
+
+Cerró los ojos y exhaló profundamente, dejando escapar un tembloroso suspiro. Limpió su mente y comenzó a concentrarse. Visualizó su hogar, los cálidos abrazos de sus compañeros del bosque, la risa de sus amigos en Ponyville y, sobre todo, las cinco amigas que tantas veces habían estado allí para apoyarla.
+
+Poco a poco, la rigidez en sus patas traseras empezó a disminuir. De pronto, como si una fuerza invisible la hubiera liberado, logró dar unos pasos hacia adelante, aunque un tanto torpes.
+
+"Uff... qué alivio", murmuró Fluttershy, dejando escapar una sonrisa esperanzadora mientras agitaba ligeramente sus patas traseras. Sus extremidades estaban bien nuevamente. Por ahora.
+
+Sin mirar atrás al terrorífico panorama del exterior, Fluttershy regresó con decisión a su habitación.
 
 Esta era una suite real para invitados compuesta por cuatro habitaciones unidas por una sala común. Cada habitación tenía una amplia cama, escritorio, baño individual, entre otros lujos, y por supuesto un armario con ropa tradicional del reino. Antes de su llegada, ya se habían hecho los preparativos necesarios, por lo que Fluttershy disponía de todo lo necesario para asistir a alguna gala dentro del castillo.
 
