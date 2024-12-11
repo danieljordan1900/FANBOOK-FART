@@ -1,31 +1,28 @@
+En el suroeste del Monte Aris, a cientos de leguas mar adentro, se encuentra el archipiélago Sparkor. Este conjunto de islas, extendido en forma de daga sobre el vasto océano, alberga en sus extremos dos islas completamente distintas entre si: la imponente isla volcánica de Rou y la paradisíaca isla de Vaneisy.
 
-Aquí está el fragmento editado para mejorar la claridad, fluidez y corrección gramatical, respetando el uso de las comillas dobles:
+La isla de Vaneisy, conocida por su exuberante fauna y su selva tropical, es un destino predilecto para exploradores y turistas en busca de un refugio natural. Su clima soleado y sus playas de arena blanca, bañadas por un mar turquesa, la convierten en el sinónimo perfecto del paraíso en la tierra.
 
-En el suroeste del Monte Aris, a cientos de leguas mar adentro, se encuentra el archipiélago Sparkor. Este conjunto de islas, extendido en forma de daga sobre el vasto océano, alberga en sus extremos dos islas muy diferentes entre sí: la gran isla volcánica de Rou y la paradisíaca isla de Vaneisy.
+En contraste, la isla de Rou presenta un paisaje radicalmente opuesto. Sus colinas de granito y basalto, rodeadas por ríos de lava que descienden desde un volcán activo, están envueltas en un clima perpetuamente tormentoso. Este ambiente, ya de por sí hostil, se agrava con la actividad sísmica que sacude regularmente la región. Como si esto no bastara, Rou es hogar tambien de una fauna extraña y hostil, que consolidan su reputación como un "pedacito del infierno en la tierra".
 
-Vaneisy, famosa por su exuberante fauna y selva tropical, es un destino ideal para exploradores y turistas en busca de un refugio natural. Su clima soleado y sus playas de arena blanca, bañadas por un mar turquesa, la convierten en un verdadero paraíso terrenal.
+No obstante. A pesar de todas estas condiciones adversas antes mencionadas, Rou es la isla más habitada del archipiélago Sparkor. Y esto se debe en gran medida a la intensa actividad minera que prospera en su superficie, ya que la isla es un paraíso geológico repleto de gemas y minerales únicos en el mundo.
 
-En contraste, Rou ofrece un paisaje completamente opuesto. Sus colinas de granito y basalto, rodeadas de ríos de lava que fluyen desde un volcán activo, están envueltas en un clima perpetuamente tormentoso. Este entorno, ya de por sí desafiante, se ve agravado por la actividad sísmica que sacude regularmente la región. Como si esto no fuera suficiente, la isla alberga una fauna hostil que refuerza su reputación como un "pedacito del infierno en la tierra".
+Tal es la riqueza del lugar que incluso el interior del volcán activo es explotado con fines mineros. Algo que no deberia de ser, dado lo peligrosa que resulta la tarea, pero que ocurre de todas formas con pleno conocimiento de los habitantes, quienes, en su incansable búsqueda de riquezas, están dispuestos a todo (incluso arriesgar sus propias vidas) con tal de prosperar en esa tierra tan inhóspita. La gran ciudad y los abarrotados puertos situados al norte de la isla son una prueba innegable de la bonanza del reino y la férrea determinación de su gente.
 
-Y, aun así, a pesar de sus condiciones adversas, Rou es la isla más habitada del archipiélago Sparkor. Esto se debe en gran medida a la intensa actividad minera que se desarrolla en su superficie, ya que la isla es un paraíso geológico rico en gemas y minerales únicos en el mundo.
+Y precisamente reforzando esta vision de osado progreso. Por encima de la isla, sobre su bulliciosa ciudad minera y sus concurridos puertos, se alza el majestuoso castillo real de Abigail, la viva imagen del espíritu indómito del reino.
 
-Tal es la riqueza del lugar que incluso el interior del volcán activo es explotado con fines mineros. Todo esto ocurre con pleno conocimiento de los habitantes, quienes, en su búsqueda de riquezas, están dispuestos a arriesgar sus vidas para alcanzar la prosperidad en este entorno tan inhóspito. La gran ciudad y los abarrotados puertos situados al norte de la isla son un claro testimonio de la bonanza y la determinación de su gente.
+Construido con oro, granito rojo brillante y negro basalto, el castillo, sin incluir sus torres y anexos, triplica con facilidad el tamaño del homólogo Castillo de Canterlot. Si su monumental tamaño, diseño y colores no fueran lo suficientemente impresionantes, también destaca por estar erigido sobre una montaña flotante que se eleva ligeramente por encima de la isla.
 
-Y, por encima de la bulliciosa ciudad minera y sus concurridos puertos, se alza el majestuoso castillo real de Abigail. 
+Contemplar desde lo alto de sus torres el corazón del gobierno y la capital del pequeño reino de Rou es, sin lugar a dudas, una experiencia sencillamente impresionante.
 
-Construido con oro y granito rojo brillante, el castillo, sin incluir sus torres y anexos, es fácilmente tres veces más grande que el homologo Castillo de Canterlot. Si su tamaño, diseño y colores no fueran lo suficientemente impresionantes, también destaca el hecho de que está erigido sobre una montaña flotante que se eleva ligeramente por encima de la isla.
-
-Contemplar desde lo alto de sus torres el corazón del gobierno y la capital del pequeño reino de Rou es una experiencia sencillamente impresionante.
-
-Sin lugar a dudas, así es. Y si alguien le preguntara a Fluttershy, quien se encontraba en uno de los balcones del castillo, si estaba impresionada, ella respondería con firmeza que sí, pero también confesaría que estaba aterrorizada.
+Sin lugar a dudas, así es. Y si alguien le preguntara a la pequeña poni Fluttershy, quien se encontraba en uno de los balcones del castillo, si estaba impresionada, ella respondería con firmeza que sí, pero también confesaría que estaba aterrorizada.
 
 "Esto no está funcionando", murmuró para sí misma la indefensa pegaso con voz temblorosa. Había salido al balcón para observar el atardecer y distraerse, pero la visión apocalíptica de la ciudad y los remolinos de lava bajo sus ojos, que se asemejaban a orbes grotescos y brillantes, no hicieron más que incrementar su ansiedad.
 
 A sus delicados oídos llegaban los aullidos del viento, el lejano crujido de rocas que se desprendían de los peñascos y el constante burbujeo de la lava deslizándose por las colinas. Incapaz de soportar más aquel ambiente opresivo, Fluttershy decidió regresar al interior del castillo.
 
-Sin embargo, solo sus patas delanteras respondieron. La parte inferior de su cuerpo parecía haberse adherido al frío y pétreo suelo del balcón.
+Sin embargo, su andar se detuvo, ya que solo sus patas delanteras respondieron. La parte inferior de su cuerpo parecía haberse adherido al frío y pétreo suelo del balcón.
 
-Fluttershy frunció el ceño mientras viejos temores comenzaban a morder nuevamente sus flancos.
+Fluttershy frunció el ceño mientras notaba como viejos temores comenzaban a morder nuevamente sus flancos.
 
 Cerró los ojos y exhaló profundamente, dejando escapar un tembloroso suspiro. Limpió su mente y comenzó a concentrarse. Visualizó su hogar, los cálidos abrazos de sus compañeros del bosque, la risa de sus amigos en Ponyville y, sobre todo, las cinco amigas que tantas veces habían estado allí para apoyarla.
 
@@ -33,15 +30,15 @@ Poco a poco, la rigidez en sus patas traseras empezó a disminuir. De pronto, co
 
 "Uff... qué alivio", murmuró Fluttershy, dejando escapar una sonrisa esperanzadora mientras agitaba ligeramente sus patas traseras. Sus extremidades estaban bien nuevamente. Por ahora.
 
-Sin mirar atrás al terrorífico panorama del exterior, Fluttershy regresó con decisión a su habitación.
+Sin mirar atrás hacia el terrorífico panorama exterior, Fluttershy regresó con decisión a su habitación.
 
-Esta era una suite real para invitados compuesta por cuatro habitaciones unidas por una sala común. Cada habitación tenía una amplia cama, escritorio, baño individual, entre otros lujos, y por supuesto un armario con ropa tradicional del reino. Antes de su llegada, ya se habían hecho los preparativos necesarios, por lo que Fluttershy disponía de todo lo necesario para asistir a alguna gala dentro del castillo.
+Se trataba de una suite real para invitados, compuesta por cuatro habitaciones conectadas por una sala común. Cada una contaba con una amplia cama, un escritorio, un baño individual y otros lujos, además de un armario repleto de ropa tradicional del reino. Antes de su llegada, ya se habían realizado los preparativos necesarios, por lo que Fluttershy disponía de todo lo necesario para asistir a cualquier gala dentro del palacio.
 
-Sin embargo... Fluttershy observó con pesadez la ropa sobre su cama.
+Sin embargo, Fluttershy observó con pesadez la ropa dispuesta sobre su cama.
 
-Era una vestimenta que se ajustaba a la brutalidad arquitectónica del castillo, en ese sentido era armonioso. Pero difícilmente podía vestirlo sin sentirse incómoda. La vestimenta que le habían seleccionado era un amplio vestido negro con bordes rojos que cubría todo el cuerpo. Tenía grabados dorados de aves feroces y reptiles bípedos en sus mangas. La cinta que iba en su cintura era roja como la sangre, con un broche que parecía el cráneo de alguna bestia demoníaca. Además, había varios accesorios más de características espeluznantes. Sin embargo, ninguno le causaba más inquietud que el sombrero de pluma que acompañaba al vestido.
+El atuendo que le habían seleccionado armonizaba con la brutalidad arquitectónica del castillo, pero le resultaba profundamente incómodo. Era un vestido negro de amplio diseño con bordes rojos que cubría todo el cuerpo, adornado con grabados dorados de aves feroces y reptiles bípedos en las mangas. Una cinta roja como la sangre rodeaba la cintura, ajustada con un broche que parecía el cráneo de una bestia demoníaca. A esto se sumaban varios accesorios igualmente espeluznantes. Pero nada le inquietaba más que el sombrero de pluma que acompañaba al conjunto.
 
-Era un sombrero blanco muy bonito, con intrincados diseños de estrellas en sus dorados bordes. Incluso Rarity se habría maravillado ante esta pieza única. Pero también tenía un detalle muy particular. Pegado al sombrero estaba el cuerpo disecado de una ardilla sosteniendo una pluma en su parte central. Para cualquier habitante del reino de Rou, tener aquel sombrero sería todo un honor y lujo.
+Era un sombrero blanco muy bonito, con intrincados diseños de estrellas en sus dorados bordes. Incluso su amiga Rarity se habría maravillado ante esta pieza única. Pero también tenía un detalle muy particular. Pegado al centro del sombrero estaba el cuerpo disecado de una ardilla sosteniendo una pluma. Para cualquier habitante del reino de Rou, tener aquel sombrero sería todo un honor y lujo.
 
 No obstante, lo que sentía Fluttershy en ese momento era todo lo contrario. La ardilla en cuestión tenía una mirada que penetraba profundamente en el espíritu del poni. Sin mencionar lo realista que se veía el disecado. El solo pensar en la idea de llevar el cadáver de un pariente de sus amigos del bosque sobre su cabeza le causaba mareos a la pegaso de melena rosa.
 
@@ -49,31 +46,31 @@ Fluttershy estaba inmersa en sus pensamientos cuando un golpeteo repentino en la
 
 "¡Cronolapsos, Fluttershy! ¿Ya estás lista? Tenemos que estar en la sala del banquete ahora mismo, la puntualidad es un factor crucial aquí en Rou", dijo una voz frenética con un acento inusual al otro lado de la puerta.
 
-Fluttershy se asustó y exclamó: "¡Oh, cielos...!". La visita al balcón y la impresion del contenido de su armario la habían distraído demasiado de su misión urgente. Sin pensarlo más, abrió la puerta de su habitación.
+"¡Oh, cielos...!" exclamó Fluttershy, dándose cuenta de que su paseo al balcón y la impresión causada por el contenido del armario la habían distraído por completo de su misión urgente. Sin pensarlo más, abrió la puerta.
 
-Rápidamente, entró una yegua de aspecto inusual. Tenía una melena gris desordenada que se mezclaba con el color de su gruesa bufanda en el cuello. Su pelaje, de un tono similar al de los melocotones, apenas se veía bajo la bata blanca que cubría todo su cuerpo. Aunque sus ropas eran de colores apagados, sus brillantes ojos heterocromáticos (azul y rojo) eran imposibles de ocultar detrás de las gruesas gafas de montura negra y cuadrada que llevaba puestas.
+Al instante, una yegua de aspecto peculiar entró en la habitación. Su melena gris desordenada se mezclaba con el color de la gruesa bufanda que llevaba en el cuello. Su pelaje, de un tono similar al melocotón, apenas era visible bajo la bata blanca que cubría todo su cuerpo. Aunque sus ropas eran discretas, sus brillantes ojos heterocromáticos (uno azul y otro rojo) destacaban intensamente detrás de unas gruesas gafas de montura negra y cuadrada.
 
-Este poni terrestre, que parecía una farmacéutica en plena labor. Era la Dr. Akito Aishime, compañera de viaje de Fluttershy y también una gran amiga de trabajo.
+Esta poni terrestre, que parecía una farmacéutica en plena labor, era la Dr. Akito Aishime, compañera de viaje de Fluttershy y también una amiga cercana.
 
-"¡Vaya! ¿Así que piensas ir desnuda a la gala? No es la decisión más prudente, pero te apoyo. Sería un buen método para reafirmar tu  posición cultural superior como embajadora de Equestria", bromeó la doctora con una expresion tan rigida que haria dudar a cualquiera si estaba bromeando o no.
+"¡Vaya! ¿Así que piensas ir desnuda a la gala? No es la decisión más prudente, pero te apoyo. Podría ser un buen método para reafirmar tu posición cultural superior como embajadora de Equestria", comentó la doctora con un tono tan rígido que hacía difícil discernir si bromeaba o hablaba en serio.
 
-"No, no se trata de eso Akito... es que no tengo un vestido adecuado para la gala", respondió Fluttershy con una voz apenada.
+"No, no es eso, Akito... Es que no tengo un vestido adecuado para la gala", respondió Fluttershy, apenada.
 
-"Disculpa, ¿puedes explicarte mas claramente?", respondió la doctora con una mirada escéptica. Ya había notado la ropa sobre la cama y el armario lleno de la pegaso.
+"Disculpa, ¿puedes explicarte más claramente?" replicó Akito, con una mirada escéptica mientras dirigía sus ojos hacia la ropa sobre la cama y el armario lleno de atuendos.
 
-"Ninguno de estos vestidos me hace sentir cómoda", dijo Fluttershy mientras miraba incómoda el sombrero de ardilla que estaba a lado suyo. La Dr. Akito, que era conciente del fuerte aprecio de Fluttershy por los animales (en particular vivos), entendió inmediatamente lo que pasaba.
+"Ninguno de estos vestidos me hace sentir cómoda", admitió Fluttershy, mirando con incomodidad el sombrero de ardilla que estaba a su lado. Akito, consciente del profundo amor de Fluttershy por los animales (especialmente los vivos), comprendió de inmediato la situación.
 
-"Umph, en ese caso, ¿qué dices si te presto uno de mis vestidos para galas?", respondió rápidamente la doctora.
+"Humph. En ese caso, ¿qué te parece si te presto uno de mis vestidos de gala?" sugirió rápidamente la doctora.
 
-"¡Sí! ¡Eso sería estupendo! Espera... ¿Tienes vestidos para galas?" cuestionó una sorprendida Fluttershy.
+"¡Sí! ¡Eso sería estupendo! Pero espera... ¿Tienes vestidos para galas?" preguntó una sorprendida Fluttershy.
 
-"Elemental Fluttershy. No solo llevo equipo de ciencia en mis maletas. También estoy técnicamente preparada para situaciones como esta", dijo la doctora con elocuente confianza mientras ajustaba sus lentes.
+"Elemental, Fluttershy. No solo llevo equipo de ciencia en mis maletas; también estoy preparada para eventualidades como esta", respondió la doctora con una confianza elocuente mientras ajustaba sus lentes.
 
-"¡Muchas gracias! Realmente me salvas Akito", dijo una agradecida Fluttershy con un pequeño aleteo.
+"¡Muchas gracias! Realmente me salvas, Akito", dijo una agradecida Fluttershy, batiendo ligeramente sus alas en señal de alivio.
 
-"No te preocupes, las amigas están para esto", dijo la doctora con una inesperada sonrisa, pero rápidamente regresó a su habitual expresión seria. "Por cierto... ¿Qué opinión tienes sobre las melenas de pecho?"
+"No te preocupes, las amigas están para esto", respondió Akito con una sonrisa inesperada, aunque rápidamente volvió a su expresión habitual seria. "Por cierto... ¿Qué opinas de las melenas de pecho?"
 
--------------------------------
+[---]
 
 La tormenta arreciaba sobre los escarpados acantilados de una isla desolada.
 
