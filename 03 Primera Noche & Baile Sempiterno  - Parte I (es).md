@@ -16,67 +16,71 @@
 
 [---]
 
-Agitando su casco en el aire e inclinandose con pausada elegancia, Fluttershy hacia una ensayada reverencia frente a su amiga la Dr. Akito Aishime.
+Agitando su casco en el aire e inclinándose con pausada elegancia, Fluttershy hizo una reverencia ensayada frente a su amiga, la Dr. Akito Aishime.
 
-"¿Lo hice bien esta vez?" pregunto la pegaso levantando la cabeza.
+"¿Lo hice bien esta vez?" preguntó la pegaso, levantando la cabeza con un atisbo de esperanza en sus ojos.
 
-"Mucho mas preciso que las 78 veces anteriores. No veo como no causes una buena impresion durante la presentacion de hoy Fluttershy." respondio la doctora acomodandose las gafas.
+"Mucho más preciso que las 78 veces anteriores. No veo cómo no podrías causar una buena impresión durante la presentación de hoy, Fluttershy," respondió la doctora, ajustándose las gafas con un leve gesto de aprobación.
 
-"¿De verdad? Ahhh ... " suspiro cansada y nerviosa, aun se encontraba en el cuarto de huespedes junto con su amiga.
+"¿De verdad? Ahhh..." suspiró Fluttershy, cansada y nerviosa. Seguía en el cuarto de huéspedes junto con su amiga, incapaz de ignorar la tensión que le oprimía el pecho.
 
-"Siento tener que repetir tantas veces esto contigo, pero ¿Realmente necesitamos hacer esto?"
+"Siento hacerte repetir esto tantas veces, pero, ¿realmente necesitamos hacerlo?" preguntó con un deje de desesperación en la voz.
 
-"No me hagas preguntas que cuya respuesta ya es parte de tu entendimiento Fluttershy, es tacito realizar esta clase de rituales sociales cuando uno lleva el titulo de embajadora de Equestria."
+"No me hagas preguntas cuya respuesta ya conoces, Fluttershy. Es tácito realizar este tipo de rituales sociales cuando una lleva el título de embajadora de Equestria," replicó Akito con una calma imperturbable.
 
-"Aughh lo se pero ...uggghh" Fluttershy se encogio en sus preocupaciones frente a la mirada imparcial de la Dr. Akito.
+"Aughh, lo sé, pero... uggghh..." Fluttershy se encogió, hundiéndose en sus preocupaciones. La doctora, percibiendo su angustia, colocó un casco sobre el hombro de su afligida amiga en un gesto de apoyo.
 
-En el pasado Fluttershy ya habia visitado otros reinos con el titulo de embajadora  , demostrando confianza y seguridad en sus acciones en aquellas ocasiones, no obstante la situacion actual habia despertado en ella fuertes inquietudes que simplemente no podia ignorar. 
+Fluttershy apenas esbozó una débil sonrisa en respuesta. Tenía demasiado en su cabeza como para sentirse reconfortada del todo.
 
-Todo habia comenzado muchos atras dias durante en una tranquila mañana en poniville... 
+En el pasado, Fluttershy ya había visitado otros reinos como embajadora, demostrando confianza y seguridad en sus acciones. Sin embargo, la situación actual había despertado en ella inquietudes profundas que simplemente no podía ignorar.
+
+Todo había comenzado días atrás, durante una tranquila mañana en Ponyville...
 
 [---]
 
-Encontrandose revisando su correo despues de un delicioso desayuno con sus amigos del bosque. Fluttershy hallo con una carta urgente de su colega la Dr. Akito en el monte Aris. El lenguage de la carta acompañada de graficas e imagenes realistas de la terrible situacion que se estaba dando ahi fueron suficiente para que la pegaso partiera de sus casa de inmediato en vuelo hacia el reino del hipogrifos.
+Revisando su correo tras un delicioso desayuno con sus amigos del bosque, Fluttershy encontró una carta urgente de su colega, la Dr. Akito, desde el Monte Aris. El lenguaje de la carta, acompañado de gráficas e imágenes impactantes sobre la terrible situación que se desarrollaba allí, fue suficiente para que la pegaso emprendiera vuelo hacia el reino de los hipogrifos sin demora.
 
-Surcando el cielo a toda velocidad atravesando las nubes, ya cerca de las costa, el amplio horizonte del oceano lo dio a Fluttershy una imagen vivida de la crisis.
+Surcando el cielo a toda velocidad y atravesando las nubes, el amplio horizonte del océano apareció ante ella, revelando una escena desoladora.
 
-Un mar rojo se extendia hasta donde se alcanzaba la vista. La Marea Roja habia conquistado el monte Aris.
+Un mar rojo se extendía hasta donde alcanzaba la vista. La Marea Roja había conquistado el Monte Aris.
 
-Consternada llego al reino de los hipogrifos donde fue recibida por su colega y mismisima Reina Novo donde le explicaron la peligrosa situacion en la que se encontraban, en poco noches una virulenta marea roja habia infectado todas las playas de la region, extendiendose de forma explosiva los hipogrifos habian tenido muy poco tiempo para prepararse, tal fenomeno natural causaba estragos en la salud de los habitantes del reino bloqueando la capacidad de los hipogrifos de cambia de su forma y causandoles largos episodios de fiebre que si no se atendian podian llegar a ser mortales. Afortunadamente como la mitad del reino vivia en la superficie y no en el oceano, el impacto de la marea roja no habia sido completo. Sin embargo quedaban muy pocas manos libres para ayudar a los enfermos y el sistema de salud se hallaba proximo al colapso. 
+Consternada, Fluttershy llegó al reino de los hipogrifos, donde fue recibida por su colega y la mismísima Reina Novo. Ambas le explicaron la peligrosa situación: en apenas unas noches, una virulenta marea roja había infectado todas las playas de la región. Su expansión explosiva dejó poco tiempo para prepararse. Este fenómeno natural estaba causando estragos en la salud de los habitantes, bloqueando la capacidad de los hipogrifos para cambiar de forma y provocándoles episodios prolongados de fiebre que, de no atenderse, podían ser mortales.
 
-Sin perder mas tiempo, Fluttershy y todos los demas ponis que tambien habian sido convocados para ayudar, se pusieron a la vanguardia medica de la lucha contra la marea roja en el reino. Asi tras transnochadas noches sin sueño atendiendo a todos los enfermos que podian la crisis pudo ser controlada.
+Afortunadamente, como la mitad del reino vivía en tierra y no en el océano, el impacto no había sido total. Sin embargo, las pocas manos disponibles para atender a los enfermos y el sistema de salud al borde del colapso dejaban al reino en una situación crítica.
 
-La celebracion en el reino por el esfuerzo de los voluntarios era grande. No obstante para Fluttershy, que tambien habia ayudado como podia a los enfermos, su trabajo apenas empezaba. 
+Sin perder tiempo, Fluttershy y otros ponis convocados para ayudar se unieron a la lucha médica contra la marea roja. Después de noches interminables atendiendo a los enfermos, la crisis pudo ser controlada.
 
-Los hipogrifos estaban a salvo, si, pero no el resto de las criaturas marinas que habitaban en la costas del reino.
+La celebración en el reino fue inmensa, agradeciendo el esfuerzo de los voluntarios. Pero para Fluttershy, quien también había ayudado incansablemente, el trabajo apenas comenzaba.
 
-Focas, ballenas, grandes peces de coral, muchos mas critauras y sobre todo los celebres delfines que acompañaban a los hipogrifos casi como hermanos marinos, aun se encontraban en grave peligro.
+Los hipogrifos estaban a salvo, sí, pero no así las criaturas marinas que habitaban las costas del reino.
 
-La medicina para curarlos no era suficiente para todos ellos, demasiada ya habia sido usada por los mismo hipogrifos, y tenian en reserva lo suficiente solo para unas semanas mas. Sin tener claro cuanto tiempo la implacable marea roja permaneceria en las aguaas, el futuro de todas estas criaturas y de los mismos hipogrifos era incierto. 
+Focas, ballenas, peces de coral y, sobre todo, los célebres delfines que acompañaban a los hipogrifos casi como hermanos marinos seguían en grave peligro. La medicina disponible no era suficiente para todos ellos. Gran parte ya había sido usada para los hipogrifos, y las reservas restantes apenas durarían unas semanas. Con la implacable marea roja todavía presente, el futuro de estas criaturas y del ecosistema seguía siendo incierto.
 
-Con pesades la reina Novo recibio el informe de sus consejeros, una reunion a puertas cerradas en la que estaba presenta la misma Fluttershy, la ayuda medica que habian recibido de Equestria por parte de la princesa Twilight habia sido oportuna y muy agradecida, pero no cambiaba el panorama. La limpieza de las aguas cercanas al reino tardaria tanto como los enfermos terminaran de recuperarse, tiempo con el que no contaban las demas criaturas marinas. El suministro de la medicina contra la marea roja era limitado y tambien en Equestria se tardarian en obtener mas suministros si es que no se acababan antes.
+Con pesadumbre, la Reina Novo recibió el informe de sus consejeros en una reunión a puertas cerradas, en la que Fluttershy también estuvo presente. Aunque la ayuda médica enviada desde Equestria por la Princesa Twilight había sido oportuna y muy apreciada, no cambiaba el panorama.
 
-Usar la magia transformadora de la gran perla del reino para salvarlos a todos parecia la opcion mas razonable, sin embargo era un idea que nadie se atrevio a decir en la reunion, todos sabian que la magia no era la respuesta a todos los problemas y en ocasiones daba resultados peores al mismo problema original, precisamente la reina Novo con toda toda su larga experiencia como gobernante, le indicaban sus sentidos que curar a los enfermos de esa forma seria una muy mala descicion.
+La limpieza de las aguas cercanas al reino tomaría tanto tiempo como los enfermos tardaran en recuperarse, un tiempo que las criaturas marinas no tenían. El suministro de la medicina contra la marea roja era limitado, y reabastecerse en Equestria tomaría más tiempo del que podían permitirse.
 
-Asi en medio de las deliberaciones de la reunion sobre los otros caminos que podian trasar para salvar a cuantos pudieran, asumiendo ya que tendrian que dar por perdidas a las demas criaturas marinas, fue interrumpida por una sauve y descidida voz.
+Usar la magia transformadora de la Gran Perla del Reino parecía una solución razonable, pero nadie se atrevía a proponerlo abiertamente. Esa decisión pertenecía únicamente a su propietaria, la Reina Novo, quien, con su vasta experiencia como gobernante, intuía que recurrir a la magia de la perla para curar a los enfermos podría resultar desastroso. Era bien sabido que la magia no era la respuesta a todos los problemas y que, en ocasiones, podía traer consecuencias incluso peores. 
 
-"¡No pueden abandonarlos asi! Tambien pueden pedir ayuda a otros reinos ¿no?" dijo Fluttershy angustiada pero que retrocdedio de inmediato atravesada por las serias miradas de todos los presentes en la importante reunion.
+Asi, en medio de las deliberaciones sobre las posibles alternativas para salvar tantas criaturas como fuera posible, asumiendo ya que muchas se perderían, la reunión fue interrumpida por una suave pero decidida voz.
 
-Fue una ocurrencia suya, nacida de su preocupacion sincera por las criaturas marinas enfermas, propia de una poni como Fluttershy pero que en el reino de los orgullosos hipogrifos fue percibida de otra forma.
+"¡No pueden abandonarlos así! También pueden pedir ayuda a otros reinos, ¿no?" exclamo Fluttershy, angustiada, pero retrocedió de inmediato al ser atravesada por las serias miradas de todos los presentes en la importante reunión.
 
-Inoportuna. Excepto para una de las presentes, que de inmediato contesto. 
+Fue una ocurrencia suya, nacida de su preocupación sincera por las criaturas marinas enfermas, propia de una poni como Fluttershy, pero que en el reino de los orgullosos hipogrifos fue percibida de otra forma.
 
-"Yo tampoco deseo abandonarlos Fluttershy, nadie aqui lo desea, pero tenemos obligaciones con los nuestros que cumplir. Pedir ayuda a otros reinos, esta bien, ¿pero conoces a algun reino que entienda de nuestras adversidades y que pueda responder con tanta prontitud como tu?" hablo la reina Novo con gravedad.
+Inoportuna. Excepto para una de las presentes, que de inmediato contestó.
 
-Fluttershy no pudo responder y con su silenciosa respuesta la reina continuo.
+"Yo tampoco deseo abandonarlos, Fluttershy. Nadie aquí lo desea, pero tenemos obligaciones con los nuestros que cumplir. Pedir ayuda a otros reinos está bien, ¿pero conoces algún reino que entienda nuestras adversidades y pueda responder con tanta prontitud como tú?" habló la Reina Novo con gravedad.
 
-"Yo si conosco de otros reinos que pueden ayudarnos, pero se hallan lejos, distantes de nosotros en muchos sentidos. Fluttershy querida, en nombre de Equestria y los desvalidos compañeros de olas del monte Aris, ¿estarias dispuesta a hacer un viaje sobre aguas desconocidas para pedir ayuda y asi salvar a nuestros amados compañeros?"
+Fluttershy no pudo responder y, con su silenciosa respuesta, la Reina continuó.
 
-"Si" respondio de inmediato Fluttershy sin duda alguna en su voz.
+"Yo sí conozco otros reinos que pueden ayudarnos, pero están lejos, distantes de nosotros en muchos sentidos. Fluttershy querida, en nombre de Equestria y de los desvalidos compañeros de olas del Monte Aris, ¿estarías dispuesta a hacer un viaje sobre aguas desconocidas para pedir ayuda y así salvar a nuestros amados compañeros?"
 
-"Te lo ruego entonces." termino de decir la reina quien no pudo ocular en su serio semblante la viva pena por las queridas mascotas delfin que ella tanto cuidaba y que ahora corrian grave peligro.
+"Sí," respondió de inmediato Fluttershy, sin dudarlo ni por un instante.
 
-Fue asi como la gentil pegaso de melena rosa, que representaba la amabilidad de todos los ponis, coloco en su espalda la pesada carga que ahora, muchos dias despues y leguas de distancia recorridas, pesaban duramente sobre su espiritu.
+"Te lo ruego, entonces," concluyó la Reina, quien no pudo ocultar en su serio semblante la pena viva por las queridas mascotas delfines que ella tanto cuidaba y que ahora corrían un grave peligro.
+
+Fue así como la gentil pegaso de melena rosa, que representaba la amabilidad de todos los ponis, colocó en su espalda la pesada carga que, muchos días después y a miles de leguas de distancia, seguiría pesando duramente sobre su espíritu.
 
 [---]
 
