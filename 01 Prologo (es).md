@@ -50,7 +50,7 @@ Fluttershy estaba inmersa en sus pensamientos cuando un golpeteo repentino en la
 
 Al instante, una yegua de aspecto peculiar entró en la habitación. Su melena gris desordenada se mezclaba con el color de la gruesa bufanda que llevaba en el cuello. Su pelaje, de un tono similar al melocotón, apenas era visible bajo la bata blanca que cubría todo su cuerpo. Aunque sus ropas eran discretas, sus brillantes ojos heterocromáticos (uno azul y otro rojo) destacaban intensamente detrás de unas gruesas gafas de montura negra y cuadrada.
 
-Esta poni terrestre, que parecía una farmacéutica en plena labor, era la Dr. Akito Aishime, compañera de viaje de Fluttershy y también una amiga cercana.
+Esta poni terrestre, que parecía una farmacéutica en plena labor, era la Dra. Akito Aishime, compañera de viaje de Fluttershy y también una amiga cercana.
 
 "¡Vaya! ¿Así que piensas ir desnuda a la gala? No es la decisión más prudente, pero te apoyo. Podría ser un buen método para reafirmar tu posición cultural superior como embajadora de Equestria", comentó la doctora con un tono tan rígido que hacía difícil discernir si bromeaba o hablaba en serio.
 

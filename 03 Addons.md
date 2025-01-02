@@ -70,9 +70,9 @@ Fue una ocurrencia suya, nacida de su preocupación sincera por las criaturas ma
 
 Inoportuna. Excepto para una de las presentes, que de inmediato contestó.
 
-"Yo tampoco deseo abandonarlos, Fluttershy. Nadie aquí lo desea, pero tenemos obligaciones con los nuestros que cumplir. Pedir ayuda a otros reinos está bien, ¿pero conoces algún reino que entienda nuestras adversidades y pueda responder con tanta prontitud como tú?" habló la Reina Novo con gravedad.
+"Yo tampoco deseo abandonarlos, Fluttershy. Nadie aquí lo desea, pero tenemos obligaciones que cumplir con los nuestros. Pedir ayuda a otros reinos está bien, ¿pero conoces algún reino que entienda nuestras adversidades y pueda responder con tanta prontitud como tú?" habló la Reina Novo con gravedad.
 
-Fluttershy no pudo responder y, con su silenciosa respuesta, la Reina continuó.
+Fluttershy no pudo responder, en medio de su silencio, la Reina continuó.
 
 "Yo sí conozco otros reinos que pueden ayudarnos, pero están lejos, distantes de nosotros en muchos sentidos. Fluttershy querida, en nombre de Equestria y de los desvalidos compañeros de olas del Monte Aris, ¿estarías dispuesta a hacer un viaje sobre aguas desconocidas para pedir ayuda y así salvar a nuestros amados compañeros?"
 
