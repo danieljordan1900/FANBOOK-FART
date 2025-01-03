@@ -24,7 +24,7 @@ Si sus amigas la vieran vestida asi. ¿Que pensarian? Fluttershy se estremecio l
 
 Mientras sus pensamientos revoloteaban en busca de una explicación, no podía evitar que su mirada regresara, una y otra vez, a un punto particular en su reflejo en el espejo: la voluminosa melena de pecho.
 
-Fluttershy suspiro nuevamente.
+Fluttershy suspiro nuevamente, pero esta vez con incomodidad al ver como su amiga palpaba ligeramente la melena de pecho comprobando su suavidad.
 
 Más que un accesorio llamativo, la melena de pecho tenia un color que combinaba tan perfectamente con su pelaje que fácilmente podría confundirse con una parte natural de su cuerpo, lo que posiblemente podría derivar en malentendidos muy embarazosos.
 
@@ -54,17 +54,17 @@ Con una seguridad recién descubierta, Fluttershy habló:
 
 Akito asintió, apartándose de las monolíticas puertas, que comenzaron a abrirse lentamente de par en par con un chirrido grave y solemne. Entonces, desde la penumbra abismal de los pasillos del castillo, emergió una figura oscura.
 
-El vello de Fluttershy se erizó al instante.
+El vello de Fluttershy se erizó al instante. 
 
-Pero no era solo una figura. Dos más idénticas a la primera avanzaban detrás, moviéndose al unísono con un ritmo casi hipnótico.
+No era solo una figura. Dos más idénticas a la primera avanzaban detrás, moviéndose al unísono con un ritmo casi hipnótico.
 
 El corazón de Fluttershy se aceleró y el tic nervioso volvió a manifestarse en su rostro con renovada intensidad.
 
-Las tres figuras, vestidas de oscuro, avanzaron con pasos inaudibles, deteniéndose frente a ella en formación perfecta.
+Las tres figuras, vestidas de oscuro, avanzaron con pasos inaudibles, hasta detenerse frente a ella en formación perfecta.
 
 "Saludos, ilustre embajadora Fluttershy, estimada amiga de la princesa Twilight Sparkle, gobernante de Equestria. Nosotras, sirvientas reales de la casa de Abigail, le damos la bienvenida en nombre de nuestra amada 'Flor de la Noche', la princesa Imaria Rouse, gobernante de Rou. Por favor, permítanos ser sus guías hacia la Gran Gala Sempiterna de esta noche..."
 
-Aquellas palabras, pronunciadas con naturalidad, habrían sido recibidas con gratitud y normalidad por cualquier otra poni.
+Aquellas palabras, pronunciadas con naturalidad y cordial reverencia, habrían sido recibidas con gratitud y normalidad por cualquier otra poni.
 
 Pero no por Fluttershy, quien estaba demasiado ocupada lidiando con su pánico interno.
 
@@ -78,7 +78,7 @@ A pesar de vestir como sirvientas y hablar con voces perfectamente normales, aqu
 
 Era una comitiva de bienvenida... inquietantemente espeluznante.
 
-Fluttershy, quien creía estar preparada para cualquier cosa, no retrocedió. Pero tampoco avanzó. De hecho, no se movió ni pareció respirar.
+Fluttershy, quien creía estar preparada para cualquier cosa, no retrocedió. Pero tampoco avanzó. De hecho, no se movia ni parecia respirar.
 
 La Dra. Akito, notando el prolongado silencio después del anuncio de las sirvientas, se acercó a su amiga para inspeccionarla de cerca. Fluttershy lucía una sonrisa rígida en un rostro tan pálido como las calavéricas caras de las sirvientas.
 
@@ -86,7 +86,7 @@ La Dra. Akito, notando el prolongado silencio después del anuncio de las sirvie
 
 "No es nada importante," respondió Akito con su habitual tono técnico, aunque un poco más apresurado de lo habitual. "La ilustre embajadora de Equestria simplemente se encuentra sin habla ante un grupo de guías tan... refinado y exclusivo como el que se le ha asignado."
 
-Sin perder la compostura, Akito comenzó a buscar en su kit portátil algo que pudiera ayudar a Fluttershy a salir de su estado. Le tomaría unos minutos devolverla a su estado normal, pero no estaba preocupada por el retraso. Después de todo, la situación aún se encontraba dentro del margen del "cronograma inicial".
+Sin perder la compostura, Akito comenzó a buscar en su kit portátil algo que pudiera ayudar a Fluttershy a salir de su paralisis. Le tomaría unos minutos devolverla a su estado normal, aunque no sentia ninguna prisa por hacerlo. Después de todo, la situación aún se encontraba dentro del margen del "cronograma inicial".
 
 Entonces, justo al encontrar un pequeño frasco de alcohol aromático, una chispa de travesura cruzó por su mente.
 
