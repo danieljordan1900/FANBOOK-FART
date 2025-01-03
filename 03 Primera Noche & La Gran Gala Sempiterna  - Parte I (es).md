@@ -1,4 +1,4 @@
-# Gala Sempiterna - Parte I
+# La Gran Gala Sempiterna - Parte I
 
 Agitando su casco en el aire e inclinándose con pausada elegancia, Fluttershy realizó una reverencia ensayada frente a su amiga, la Dra. Akito Aishime.
 
@@ -46,7 +46,7 @@ La doctora Akito fue la primera en moverse. Caminó hacia la puerta con la preci
 
 "Es el momento. ¿Estás lista?" preguntó sin rodeos, ajustándose las gafas.
 
-Fluttershy respiró hondo, llenando sus pulmones de valor. Luego exhaló, dejando ir sus inseguridades. La Gala Sempiterna la esperaba. Había recorrido un largo camino para llegar a ese lugar y a ese momento. Sería una noche desafiante, sin duda, pero lo superaría. No como la pegaso tímida de Ponyville, sino como Fluttershy: amiga fiel de la princesa Twilight y portadora de una misión ineludible. No retrocedería.
+Fluttershy respiró hondo, llenando sus pulmones de valor. Luego exhaló, dejando ir sus inseguridades. La Gran Gala Sempiterna la esperaba. Había recorrido un largo camino para llegar a ese lugar y a ese momento. Sería una noche desafiante, sin duda, pero lo superaría. No como la pegaso tímida de Ponyville, sino como Fluttershy: amiga fiel de la princesa Twilight y portadora de una misión ineludible. No retrocedería.
 
 Con una seguridad recién descubierta, Fluttershy habló:
 
@@ -56,11 +56,13 @@ Akito asintió, apartándose de las monolíticas puertas, que comenzaron a abrir
 
 El vello de Fluttershy se erizó al instante. 
 
-No era solo una figura. Dos más idénticas a la primera avanzaban detrás, moviéndose al unísono con un ritmo casi hipnótico.
+No era solo una figura. Dos más idénticas a la primera avanzaban detrás, moviéndose al unísono con un ritmo casi hipnótico. 
 
 El corazón de Fluttershy se aceleró y el tic nervioso volvió a manifestarse en su rostro con renovada intensidad.
 
-Las tres figuras, vestidas de oscuro, avanzaron con pasos inaudibles, hasta detenerse frente a ella en formación perfecta.
+Las tres figuras, vestidas de oscuro, avanzaron con pasos inaudibles, acompañadas de aire funebre que invadia toda la habitacion. Continuaron hasta detenerse frente a la pegaso en en formación perfecta.
+
+Entonces, la que encabeza aquel grupo espectral hablo.
 
 "Saludos, ilustre embajadora Fluttershy, estimada amiga de la princesa Twilight Sparkle, gobernante de Equestria. Nosotras, sirvientas reales de la casa de Abigail, le damos la bienvenida en nombre de nuestra amada 'Flor de la Noche', la princesa Imaria Rouse, gobernante de Rou. Por favor, permítanos ser sus guías hacia la Gran Gala Sempiterna de esta noche..."
 
