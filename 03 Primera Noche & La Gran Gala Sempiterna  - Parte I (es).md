@@ -52,44 +52,44 @@ Con una seguridad recién descubierta, Fluttershy habló:
 
 "Que pase."
 
-Akito asintió, apartándose de las monolíticas puertas, que comenzaron a abrirse lentamente de par en par con un chirrido grave y solemne. Entonces, desde la penumbra abismal de los pasillos del castillo, emergió una figura oscura.
+Akito asintió, apartándose de las monolíticas puertas, que comenzaron a abrirse lentamente de par en par con un chirrido grave y solemne. Desde la penumbra abismal de los pasillos del castillo emergió una figura espectral.
 
-El vello de Fluttershy se erizó al instante. 
+El pelaje de Fluttershy se erizó al instante, y su inquietud, que parecía bajo control, comenzó a crecer de nuevo.
 
-No era solo una figura. Dos más idénticas a la primera avanzaban detrás, moviéndose al unísono con un ritmo casi hipnótico. 
+No era solo una figura espectral. Dos más idénticas a la primera avanzaban detrás, moviéndose al unísono con un ritmo casi hipnótico.
 
-El corazón de Fluttershy se aceleró y el tic nervioso volvió a manifestarse en su rostro con renovada intensidad.
+El corazón de Fluttershy, ya acelerado, latía más rápido que nunca. Su tic nervioso reapareció, dejando marcas evidentes de tensión en su rostro.
 
-Las tres figuras, vestidas de oscuro, avanzaron con pasos inaudibles, acompañadas de aire funebre que invadia toda la habitacion. Continuaron hasta detenerse frente a la pegaso en en formación perfecta.
+Las tres figuras, vestidas con oscuros uniformes de sirvientas, avanzaron con pasos inaudibles, rodeadas por un aire lúgubre que parecía inundar toda la habitación. Continuaron en una línea perfecta y silenciosa hasta detenerse frente a Fluttershy.
 
-Entonces, la que encabeza aquel grupo espectral hablo.
+Entonces, la líder del grupo habló.
 
 "Saludos, ilustre embajadora Fluttershy, estimada amiga de la princesa Twilight Sparkle, gobernante de Equestria. Nosotras, sirvientas reales de la casa de Abigail, le damos la bienvenida en nombre de nuestra amada 'Flor de la Noche', la princesa Imaria Rouse, gobernante de Rou. Por favor, permítanos ser sus guías hacia la Gran Gala Sempiterna de esta noche..."
 
 Aquellas palabras, pronunciadas con naturalidad y cordial reverencia, habrían sido recibidas con gratitud y normalidad por cualquier otra poni.
 
-Pero no por Fluttershy, quien estaba demasiado ocupada lidiando con su pánico interno.
+Pero no por Fluttershy, quien tenía los sentidos embotados y apenas prestaba atención a la amabilidad de las recién llegadas. En su interior, toda su voluntad estaba atrapada en una batalla contra el pánico que la invadía.
 
-La pegaso, que había logrado recuperar el aliento hace solo unos instantes, ahora se encontraba completamente paralizada. No por la formalidad de las sirvientas ni por su atuendo impecable, sino por su aspecto.
+La pegaso, que momentos antes había logrado reunir tanta confianza, ahora se encontraba completamente paralizada. Pero no por el ofrecimiento que acababa de recibir, ni siquiera por las vestimentas oscuras de los mensajeros, sino por el aspecto físico con el que descaradamente se mostraban.
 
 ("Son puros huesos...")
 
-Eso era todo lo que Fluttershy podía pensar mientras las observaba.
+Eso era todo lo que Fluttershy podía pensar mientras las observaba con pavor.
 
-A pesar de vestir como sirvientas y hablar con voces perfectamente normales, aquellas figuras eran, sin duda alguna, esqueletos. Sus huesos, blancos como el mármol, brillaban con un leve resplandor espectral. Sus cuencas vacías albergaban pupilas escarlatas, y un halo rojizo envolvía sus cuerpos como una extraña simulación de piel. Además, finos hilos palpitantes recorrían las uniones donde deberían estar los cartílagos.
+A pesar de vestir como sirvientas y hablar con voces sorprendentemente normales, aquellas figuras eran, sin lugar a dudas, esqueletos. Sus huesos, blancos como el mármol, brillaban con un leve resplandor espectral. Sus cuencas vacías albergaban pupilas escarlatas, y un halo rojizo envolvía sus cuerpos como si intentara simular una piel. Además, finos hilos palpitantes recorrían las uniones donde deberían estar los cartílagos, dándoles un toque aún más macabro a su aspecto.
 
-Era una comitiva de bienvenida... inquietantemente espeluznante.
+Era una comitiva de bienvenida... espeluznante. Demasiado para el frágil temple de la gentil pegaso.
 
-Fluttershy, quien creía estar preparada para cualquier cosa, no retrocedió. Pero tampoco avanzó. De hecho, no se movia ni parecia respirar.
+Aun así, Fluttershy, quien se había convencido de estar preparada para cualquier cosa, no retrocedió. Pero tampoco avanzó. En cambio, permaneció inmóvil, rígida, y sin señales de vida, como una hermosa y algo desconcertante muñeca de baile.
 
-La Dra. Akito, notando el prolongado silencio después del anuncio de las sirvientas, se acercó a su amiga para inspeccionarla de cerca. Fluttershy lucía una sonrisa rígida en un rostro tan pálido como las calavéricas caras de las sirvientas.
+La Dra. Akito, notando el prolongado silencio tras el anuncio de las sirvientas, se acercó a su amiga para inspeccionarla de cerca. Fluttershy lucía una sonrisa tensa en un rostro tan pálido como las calavéricas caras de las sirvientas.
 
 "¿Ocurre algo?" preguntó la líder de las sirvientas, ladeando su cráneo con visible confusión.
 
 "No es nada importante," respondió Akito con su habitual tono técnico, aunque un poco más apresurado de lo habitual. "La ilustre embajadora de Equestria simplemente se encuentra sin habla ante un grupo de guías tan... refinado y exclusivo como el que se le ha asignado."
 
-Sin perder la compostura, Akito comenzó a buscar en su kit portátil algo que pudiera ayudar a Fluttershy a salir de su paralisis. Le tomaría unos minutos devolverla a su estado normal, aunque no sentia ninguna prisa por hacerlo. Después de todo, la situación aún se encontraba dentro del margen del "cronograma inicial".
+Sin perder la compostura, Akito comenzó a buscar en su kit portátil algo que pudiera ayudar a Fluttershy a salir de su parálisis. Sabía que le tomaría unos minutos devolverla a su estado normal, pero no sentía ninguna prisa por hacerlo. Después de todo, la situación aún estaba dentro de sus estimaciones del "cronograma inicial".
 
-Entonces, justo al encontrar un pequeño frasco de alcohol aromático, una chispa de travesura cruzó por su mente.
+Mientras rebuscaba entre los frascos y herramientas, una chispa de travesura cruzó su mente. Con una sonrisa apenas contenida, Akito murmuró para sí misma, asegurándose de que las sirvientas —y la propia Fluttershy— no pudieran escucharla:
 
-"Un poco más de rubor en tus mejillas no estaría mal," murmuró juguetona, asegurándose de que las sirvientas —y la propia Fluttershy— no pudieran escucharla.
+"Un poco más de rubor en tus mejillas no estaría mal."
