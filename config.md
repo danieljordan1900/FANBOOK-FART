@@ -83,3 +83,36 @@ razas,
 
 sirenas tambien antagonistas
 surfines y brezzies (pertenecen a una misama raza de hiponitas)
+
+-> el gran consejero Feng Hon
+
+// historia dia 1 y dia 2
+
+
+DIA 1 PARTE II
+
+-> Fung Hon es un actor importante y aparece en la parte 0102 siendo ayudado por Fluttershy la conoce y piensa que no es como las demas ponis (queda sorprendido por esta)
+-> Otro persoanje es Nela Selfin quien queda enamorada de Fluttershy a primera vista
+-> otro mas es el Baron Fel Imanesa
+
+crear historia a partir de estos elementos.
+
+-> objetivos -> mostrar la gran gala
+-> presentar a Fung Hon y Nela Selfin, sutilmente al Baron Fel Imanesa
+-> 
+
+DIA 1 PARTE III
+
+Fluttershy llega a la gran gala, se encuentra con los principales nobles de la isla. Conoce a la princesa del reino de rou.
+
+
+
+
+
+
+// historia dia 3 4 y 5
+
+Estas historias son muy randoms y va de amor y romance.
+
+// historia dia 6 y 7
+
