@@ -70,7 +70,7 @@ Aquellas palabras, pronunciadas con naturalidad y cordial reverencia, habrían s
 
 Pero no por Fluttershy, quien tenía los sentidos embotados y apenas prestaba atención a la amabilidad de las recién llegadas. En su interior, toda su voluntad estaba atrapada en una batalla contra el pánico que la invadía.
 
-La pegaso, que momentos antes había logrado reunir tanta confianza, ahora se encontraba completamente paralizada. Pero no por el ofrecimiento que acababa de recibir, ni siquiera por las vestimentas oscuras de los mensajeros, sino por el aspecto físico con el que descaradamente se mostraban.
+La pegaso, que momentos antes había logrado reunir tanta confianza, ahora se encontraba completamente paralizada. Pero no por el ofrecimiento que acababa de recibir, mucho menos por las vestimentas oscuras de los mensajeros, sino por el aspecto físico con el que descaradamente se mostraban.
 
 ("Son puros huesos...")
 
@@ -90,6 +90,6 @@ La Dra. Akito, notando el prolongado silencio tras el anuncio de las sirvientas,
 
 Sin perder la compostura, Akito comenzó a buscar en su kit portátil algo que pudiera ayudar a Fluttershy a salir de su parálisis. Sabía que le tomaría unos minutos devolverla a su estado normal, pero no sentía ninguna prisa por hacerlo. Después de todo, la situación aún estaba dentro de sus estimaciones del "cronograma inicial".
 
-Mientras rebuscaba entre los frascos y herramientas, una chispa de travesura cruzó su mente. Con una sonrisa apenas contenida, Akito murmuró para sí misma, asegurándose de que las sirvientas —y la propia Fluttershy— no pudieran escucharla:
+Mientras rebuscaba entre los frascos y herramientas, una idea traviesa cruzó su mente. Con una sonrisa apenas contenida, Akito murmuró para sí misma, asegurándose de que las sirvientas —y la propia Fluttershy— no pudieran escucharla:
 
 "Un poco más de rubor en tus mejillas no estaría mal."
