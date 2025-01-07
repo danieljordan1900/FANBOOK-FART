@@ -101,4 +101,3 @@ Sin perder la compostura, Akito rebuscó en su kit portátil algo que pudiera ay
 Mientras seleccionaba cuidadosamente un frasco, una idea traviesa cruzó su mente. Con una sonrisa apenas contenida, murmuró para sí misma, asegurándose de que ni las sirvientas ni Fluttershy pudieran escucharla:
 
 "Un poco más de rubor en tus mejillas no estaría mal."
-
