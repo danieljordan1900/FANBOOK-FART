@@ -1,4 +1,4 @@
-Desde lo alto de una torre, envuelto en un viento frío y nebuloso, una figura encapuchada de aspecto desgarbado observaba el río de luces que fluía a lo lejos, en el suelo bajo él. Bostezó con aburrimiento desde una ventana de piedra, hastiado por la monotonía de la celebración que tenía lugar aquella noche.
+Desde lo alto de una torre, envuelto en un viento frío y nebuloso, una figura encapuchada de aspecto desgarbado observaba el río de luces que fluía a lo lejos, en el suelo bajo él. Bostezó con aburrimiento desde la ventana de piedra donde estaba sentado, hastiado por la monotonía de la celebración que tenía lugar aquella noche.
 
 "Una luna más... otra gala más... un baile más...", suspiró antes de soltar un sonoro eructo y acomodarse entre sus mantas pardas.
 
@@ -26,3 +26,4 @@ Entonces, tras un largo silencio, habló:
 
 Una sonrisa pícara se dibujó en su rostro mientras sus manos, sucias y delgadas, se posaban sobre la pulcra superficie de la gran campana de oro que se alzaba frente a él.
 
+[---]
