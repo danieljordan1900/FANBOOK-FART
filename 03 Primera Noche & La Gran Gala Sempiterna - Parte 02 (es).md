@@ -16,6 +16,8 @@ Nueve lunas rojas, cada una en una fase distinta, brillaban alineadas en una per
 
 Sorprendido, el desconocido sintió una emoción fugaz. Sus ojos, normalmente grises, centellearon con un fulgor carmesí.
 
+Breve, el momento paso ante sus ojos, el cielo volvio a cerrarse entre las nubes.
+
 ¿Era esto una señal de buena fortuna? No esperaba que algo así ocurriera. Tal vez solo era suerte… pero si realmente significaba algo… quizá debería...
 
 Dudando de sus propios pensamientos, saltó con vigor del marco de la ventana y fijó su atención en el gran objeto que dominaba la oscura habitación.
