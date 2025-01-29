@@ -4,6 +4,7 @@
 -> es muy importante tener una idea clara del rumbo de la historia
 -> la gala es un evento importante en rou pero que funcion cumple?
 -> el nombre del villano no me convence ... podria ser Adis 
+-> la aparicion del villano se posterga al arco tres
 
 
 -> la gran gala es un evento unico que ocurre cada 20 lunas y se celebra en un intervalo de 14 dias antes y despues de la fecha cumbre que es el solsticio de verano que coincide con la luna llena.
