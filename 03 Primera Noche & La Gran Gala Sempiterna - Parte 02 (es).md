@@ -34,7 +34,7 @@ Frente a unas enormes puertas, unas sirvientas esqueléticas esperaban con impac
 
 "Aaa... aaaa..." La respiración de Fluttershy seguía agitada. Los efectos de los electroshocks que la Dr. Akito había usado para sacarla de su anterior estado de parálisis aún persistían en su memoria... y, sobre todo, en su piel.
 
-"Me he disculpado antes y lo reiteraría de nuevo ahora. Sin embargo, no tenemos tiempo para teatralidades como esta. Querida amiga, ¿puedes hacer un esfuerzo por dejar de sudar?", dijo la Dr. Akito con las cejas fruncidas y su marcado acento, reflejando su creciente molestia al ver cómo el vestido, que tanto esfuerzo le había costado ponerle, se empapaba con el sudor de Fluttershy.
+"Me he disculpado antes y lo reiteraría de nuevo ahora. Sin embargo, no tenemos tiempo para teatralidades como esta. Querida amiga, ¿puedes hacer un esfuerzo por dejar de transpirar?", dijo la Dr. Akito con las cejas fruncidas y su marcado acento, reflejando su creciente molestia al ver cómo el vestido, que tanto esfuerzo le había costado ponerle, se empapaba con el sudor de Fluttershy.
 
 "Aaa... lo siento, Akito... ¡Lo siento! ¡Lo siento! ¡Realmente lo siento! ¡Pero no puedo evitarlo!... ¡Ayyy!", chilló Fluttershy con una voz temblorosa, quebrada, al borde de las lágrimas.
 
