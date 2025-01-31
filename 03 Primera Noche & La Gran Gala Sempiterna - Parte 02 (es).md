@@ -46,7 +46,7 @@ Ese obstáculo se llamaba Fluttershy, quien estaba hundida en una crisis de conf
 
 Por más que intentaba mantenerse firme, sus emociones la desbordaban. Se suponía que debía actuar como una adulta, pero en ese instante solo era una potrilla asustada en su primer día de clases. ¡Cómo podía caer tan bajo en un momento como este! ¿Acaso nunca lograría dominar sus emociones? ¿Cuánto más debía vivir para, por fin, convertirse en la yegua segura de sí misma que tanto deseaba ser?
 
-Con la mirada perdida, Fluttershy respiró hondo e inhaló de la botella de alcohol médico que su amiga le había dado. Sintió ardor en la nariz y nada más. Había sido en vano. Sus temblores no cesaban y el sudor seguía brotando. La inseguridad la consumía, haciéndola perderse aún más dentro de sí misma.
+Con la mirada perdida en medio de sus propias represiones, Fluttershy respiró hondo e inhaló de la botella de alcohol médico que su amiga le había dado. Sintió ardor en la nariz y nada más. Había sido en vano. Sus temblores no cesaban y el sudor seguía brotando. La inseguridad la consumía, haciéndola perderse aún más dentro de sí misma.
 
 Akito la observó con preocupación. La situación estaba escalando peligrosamente. No había previsto que Fluttershy sufriría una crisis emocional tan grave en ese momento. Sin perder más tiempo, buscó entre sus alforjas algo que pudiera ayudar. Dejó de lado el alcohol (claramente ineficaz) y sus equipos de electroshock, que ya no eran una opción viable. Aún tenía otros recursos disponibles.
 
