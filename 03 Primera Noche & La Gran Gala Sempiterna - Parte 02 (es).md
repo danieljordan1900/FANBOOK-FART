@@ -36,19 +36,19 @@ Frente a unas enormes puertas, unas sirvientas esqueléticas esperaban con impac
 
 "Aaa... aaaa..." La respiración de Fluttershy seguía agitada. Los efectos de los electroshocks que la Dr. Akito había usado para sacarla de su anterior estado de parálisis aún persistían en su memoria... y, sobre todo, en su piel.
 
-"Me he disculpado antes y lo reiteraría de nuevo ahora. Sin embargo, no tenemos tiempo para teatralidades como esta. Querida amiga, ¿podrías hacer un esfuerzo por reducir tu tasa de transpiración?", dijo la Dr. Akito con las cejas fruncidas y su marcado acento, reflejando su creciente molestia al ver cómo el vestido (que tanto esfuerzo le había costado ponerle a Fluttershy) se empapaba con sudor.
+"Me he disculpado antes y lo reiteraría de nuevo ahora. Sin embargo, no tenemos tiempo para teatralidades como esta. Querida amiga, ¿podrías hacer un esfuerzo por reducir tu tasa de transpiración?", dijo la Dr. Akito con las cejas fruncidas y su marcado acento, reflejando su creciente molestia al ver cómo el vestido (que tanto esfuerzo le había costado ponerle a Fluttershy) se empapaba de sudor.
 
 "Aaa... lo siento, Akito... ¡Lo siento! ¡Lo siento! ¡Realmente lo siento! ¡Pero no puedo evitarlo!... ¡Ayyy!", chilló Fluttershy con una voz temblorosa, quebrada, al borde de las lágrimas.
 
 Después de haberla liberado de su parálisis, Fluttershy y la Dr. Akito habían solicitado unos minutos extra para prepararse. Sin embargo, la situación había comenzado a extenderse más de lo esperado debido a un obstáculo imprevisto.
 
-Ese obstáculo se llamaba Fluttershy. Que estaba hundida en una crisis de confianza.
+Ese obstáculo se llamaba Fluttershy, quien estaba hundida en una crisis de confianza.
 
-Por más que intentaba mantenerse firme, sus emociones la desbordaban. Se suponía que debía actuar como una adulta, pero en ese instante solo era una potrilla asustada en su primer día de clases. ¡Cómo podía caer tan bajo en un momento como este! ¿Acaso nunca podría dominar sus emociones? ¿Cuánto más debía vivir para, por fin, convertirse en la yegua segura de si misma que tanto deseaba ser?
+Por más que intentaba mantenerse firme, sus emociones la desbordaban. Se suponía que debía actuar como una adulta, pero en ese instante solo era una potrilla asustada en su primer día de clases. ¡Cómo podía caer tan bajo en un momento como este! ¿Acaso nunca lograría dominar sus emociones? ¿Cuánto más debía vivir para, por fin, convertirse en la yegua segura de sí misma que tanto deseaba ser?
 
-Con la mirada perdida, Fluttershy respiró hondo e inhalo de la botella de alcohol medico que su amiga le había dado. Sintio ardor en nariz y nada mas. Habia sido en vano. Sus temblores no cesaban y el sudor seguía brotando. La inseguridad la consumía, haciéndola perderse aún más dentro de sí misma.
+Con la mirada perdida, Fluttershy respiró hondo e inhaló de la botella de alcohol médico que su amiga le había dado. Sintió ardor en la nariz y nada más. Había sido en vano. Sus temblores no cesaban y el sudor seguía brotando. La inseguridad la consumía, haciéndola perderse aún más dentro de sí misma.
 
-Akito la observó con preocupación. La situación estaba escalando peligrosamente. No había previsto que Fluttershy sufriría una crisis emocional tan grave en ese momento. Sin perder más tiempo, buscó entre sus alforjas algo que pudiera ayudar. Dejando de lado el alcohol (claramente ineficaz) y sus equipos de electroshock, que ya no eran una opción viable. Aún tenía otros recursos disponibles.
+Akito la observó con preocupación. La situación estaba escalando peligrosamente. No había previsto que Fluttershy sufriría una crisis emocional tan grave en ese momento. Sin perder más tiempo, buscó entre sus alforjas algo que pudiera ayudar. Dejó de lado el alcohol (claramente ineficaz) y sus equipos de electroshock, que ya no eran una opción viable. Aún tenía otros recursos disponibles.
 
 Sacó de entre sus cosas una pequeña pero densa libreta de color verde. Sin decir una palabra, sujetó con firmeza la cabeza de Fluttershy y la acercó al contenido abierto del libro.
 
@@ -56,7 +56,7 @@ Sacó de entre sus cosas una pequeña pero densa libreta de color verde. Sin dec
 
 En las páginas, varias fotografías mostraban crías de delfín jugando alegremente en una playa de aguas cristalinas.
 
-La mirada de Fluttershy se enfocó en las imágenes. Poco a poco, sus pensamientos comenzaron a ordenarse, reflejandose en una más relajada mirada.
+La mirada de Fluttershy se enfocó en las imágenes. Poco a poco, sus pensamientos comenzaron a ordenarse, reflejándose en una expresión más relajada.
 
 Akito dejó escapar un suspiro de alivio, creyendo que había logrado calmarla. Pero esa esperanza se desvaneció en cuanto escuchó las siguientes palabras de Fluttershy:
 
