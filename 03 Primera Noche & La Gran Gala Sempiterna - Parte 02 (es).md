@@ -82,6 +82,23 @@ Akito se dispuso a abrir, pero antes de dar un paso, una voz la detuvo.
 
 [---]
 
+El gran castillo de Abigail. Construido a principios del reinado de la dinastía Imanesa —los primeros monarcas de Rou— y concluido nueve generaciones después, precisamente cuando esta llegó a su fin. Es la construccion mas antigua y grande de toda la isla. Su edificación representó un esfuerzo titánico y trascendental en la historia del pequeño reino, cobrando tanto vidas como recursos materiales. Diseñado como una fortaleza contra invasores extranjeros y un refugio ante el impredecible clima de la región, el castillo llegó a albergar en su época dorada a casi el 80 % de la población. Sin embargo, en la actualidad, solo un 20 % de los habitantes del reino permanecen dentro de sus muros.
+
+Los cambios en las dinastías, los desastres naturales y el desarrollo de formas de vida más seguras en la isla llevaron a la población a establecerse cerca de las costas. Además, el castillo ya no ofrece la misma seguridad que antaño.
+
+Flotando sobre un mar de lava, la fortaleza-ciudad-castillo ha perdido gran parte de su antigua gloria. En su época, imponentes murallas y torres perimetrales resguardaban sus dominios, pero los huracanes de fuego y las guerras contra la gente del mar han erosionado sus defensas, dejando expuestas sus zonas más emblemáticas y cubriendo de cenizas y escombros los sectores donde en el pasado había vivido la mayor parte del pueblo. Calles y complejos habitacionales enteros se hallaban clausurados, solo transitados por los soldados más experimentados del ejercito. 
+
+Siendo asi, estos niveles bajos del castillo y demas areas subterraneas, son fuente inagotable de historias y supersticiones. Para la nobleza, todo lo relacionado con estass ruinosas partes de la urbe, son visto con desprecio, a los que suelen referirse con el término "Imanuco", un apelativo despectivo sinonimo de desprestigio.
+
+A pesar de todo, la aristocracia del reino todavia sigue habitando el castillo de Abigail, precisamente los niveles altos del castillo. Las torres de vigilancia y los lujosos edificios residenciales al aire libre aún resplandecían con el brillo de la antigua prosperidad. Estos complejos, funcionales y meticulosamente conservados, son símbolo de estatus y privilegio. Aun más, en el presente, la actual dinastía vigente, a puesto un gran énfasis en remodelarlos, convirtiéndolos en recompensas exclusivas para los miembros más influyentes de la sociedad de Rou.
+
+[---]
+
+
+
+
+
+
 
 
 
