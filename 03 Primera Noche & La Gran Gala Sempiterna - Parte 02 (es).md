@@ -90,9 +90,11 @@ Flotando sobre un mar de lava, la fortaleza-ciudad-castillo ha perdido gran part
 
 Siendo asi, estos niveles bajos del castillo y demas areas subterraneas, son fuente inagotable de historias y supersticiones. Para la nobleza, todo lo relacionado con estass ruinosas partes de la urbe, son visto con desprecio, a los que suelen referirse con el término "Imanuco", un apelativo despectivo sinonimo de desprestigio.
 
-A pesar de todo, la aristocracia del reino todavia sigue habitando el castillo de Abigail, precisamente los niveles altos del castillo. Las torres de vigilancia y los lujosos edificios residenciales al aire libre aún resplandecían con el brillo de la antigua prosperidad. Estos complejos, funcionales y meticulosamente conservados, son símbolo de estatus y privilegio. Aun más, en el presente, la actual dinastía vigente, a puesto un gran énfasis en remodelarlos, convirtiéndolos en recompensas exclusivas para los miembros más influyentes de la sociedad de Rou.
+A pesar de todo, la aristocracia del reino todavia sigue habitando el castillo de Abigail, precisamente los niveles altos del castillo. Las torres de vigilancia y los lujosos edificios residenciales al aire libre aún resplandecían con el brillo de la antigua prosperidad. Estos complejos, funcionales y meticulosamente conservados, son símbolo de estatus y privilegio. Y aun más vigente, en el presente, la actual dinastía a puesto un gran énfasis en remodelarlos, convirtiéndolos en recompensas exclusivas para los miembros más influyentes de la sociedad de Rou.
 
 [---]
+
+
 
 
 
