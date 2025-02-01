@@ -48,11 +48,11 @@ Por más que intentaba mantenerse firme, sus emociones la desbordaban. Se supon�
 
 Con la mirada perdida en medio de sus propias represiones, Fluttershy respiró hondo e inhaló de la botella de alcohol médico que su amiga le había dado. Sintió ardor en la nariz y nada más. Había sido en vano. Sus temblores no cesaban y el sudor seguía brotando. La inseguridad la consumía, haciéndola perderse aún más dentro de sí misma.
 
-Akito la observó con preocupación. La situación estaba escalando peligrosamente. No había previsto que Fluttershy sufriría una crisis emocional tan grave en ese momento. Sin perder más tiempo, buscó entre sus alforjas algo que pudiera ayudar. Dejó de lado el alcohol (claramente ineficaz) y sus equipos de electroshock, que ya no eran una opción viable. Aún tenía otros recursos disponibles.
+Akito la observó con preocupación. La situación estaba escalando peligrosamente. No había previsto que Fluttershy sufriría una crisis emocional tan grave en ese momento. Sin perder más tiempo, buscó entre sus alforjas algo que pudiera ayudar. Dejando de lado el alcohol (claramente ineficaz) y sus equipos de electroshock (que ya no eran una opción viable). Aún contaba con otros recursos a su alcance.
 
 Sacó de entre sus cosas una pequeña pero densa libreta de color verde. Sin decir una palabra, sujetó con firmeza la cabeza de Fluttershy y la acercó al contenido abierto del libro.
 
-"¿Los ves, Fluttershy? ¿Los recuerdas? Es por ellos que estás haciendo esto. Ellos te necesitan..."
+"¿Los ves, Fluttershy? ¿Los recuerdas? Es por ellos que estás haciendo todo esto. Ellos te necesitan..."
 
 En las páginas, varias fotografías mostraban crías de delfín jugando alegremente en una playa de aguas cristalinas.
 
@@ -90,7 +90,7 @@ Flotando sobre un mar de lava, la fortaleza-ciudad-castillo ha perdido gran part
 
 Siendo asi, estos niveles bajos del castillo y demas areas subterraneas, son fuente inagotable de historias y supersticiones. Para la nobleza, todo lo relacionado con estass ruinosas partes de la urbe, son visto con desprecio, a los que suelen referirse con el término "Imanuco", un apelativo despectivo sinonimo de desprestigio.
 
-A pesar de todo, la aristocracia del reino todavia sigue habitando el castillo de Abigail, precisamente los niveles altos del castillo. Las torres de vigilancia y los lujosos edificios residenciales al aire libre aún resplandecían con el brillo de la antigua prosperidad. Estos complejos, funcionales y meticulosamente conservados, son símbolo de estatus y privilegio. Y aun más vigente, en el presente, la actual dinastía a puesto un gran énfasis en remodelarlos, convirtiéndolos en recompensas exclusivas para los miembros más influyentes de la sociedad de Rou.
+A pesar de todo, la aristocracia del reino todavia sigue habitando el castillo de Abigail, precisamente los niveles altos del castillo. Las torres de vigilancia y los lujosos edificios residenciales al aire libre aún resplandecen con el brillo de la antigua prosperidad. Estos complejos, funcionales y meticulosamente conservados, son símbolo de estatus y privilegio. Y aun más vigente, en el presente, la actual dinastía a puesto un gran énfasis en remodelarlos, convirtiéndolos en recompensas exclusivas para los miembros más influyentes de la sociedad de Rou.
 
 [---]
 
