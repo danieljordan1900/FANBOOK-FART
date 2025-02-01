@@ -1,6 +1,6 @@
 En lo alto de una torre, envuelto en un viento frío y nebuloso, una figura encapuchada de aspecto desgarbado observaba la procesión de luces que avanzaba por la calle principal justo debajo de él.
 
-Bostezó con aburrimiento desde la ventana de piedra donde estaba sentado, hastiado de las voces y la música provenientes de la monótona celebración que tenía lugar aquella noche.
+"WOOUUUUUUUUUUUUU" Bostezó con aburrimiento desde la ventana de piedra donde estaba sentado, hastiado de las voces y la música provenientes de la monótona celebración que tenía lugar aquella noche.
 
 "Una luna más... otra gala más... un baile más...", suspiró antes de soltar un sonoro eructo y acomodarse entre sus mantas pardas.
 
@@ -10,7 +10,7 @@ Con gestos descuidados, se limpió los restos de comida entre los dientes con su
 
 Poseía poder y astucia y, sin embargo… ahí estaba, solo, siendo él mismo.
 
-Incomodado por sus propios pensamientos, apartó la mirada del oscuro abismo bajo sus pies y alzó los ojos al cielo.
+Incomodado por sus propios pensamientos, el desconocido apartó la mirada del oscuro abismo bajo sus pies y alzó los ojos al cielo.
 
 Entonces, como si el firmamento respondiera a su deseo, las nubes se desgarraron en jirones, dejando pasar la luz de un vivo firmamento.
 
@@ -18,7 +18,7 @@ Nueve lunas rojas, ordenadas en fases distintas, brillaban alineadas en una perf
 
 Sorprendido, el desconocido sintió una emoción fugaz. Sus ojos, normalmente grises, centellearon con un fulgor carmesí.
 
-Pero fue una emocion pasajera. El cielo pronto volvio a cerrarse entre las nubes.
+Pero fue una emocion pasajera. El cielo pronto volvio a cerrarse tragado por las nubes.
 
 ¿Era esto una señal de buena fortuna? penso el desconocido. No esperaba que algo así ocurriera. Tal vez solo era suerte… pero si realmente significaba algo… quizá debería...
 
