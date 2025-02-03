@@ -94,13 +94,15 @@ A pesar de todo, la aristocracia del reino todavía sigue habitando el castillo 
 
 [---]
 
-En el castillo de Abigail a pocos minutos del inicio de Gran Gala Sempiterna...
+En uno de los caminos dentro del castillo de Abigail a pocos minutos del inicio de Gran Gala Sempiterna...
 
-"¡Saludos, Gran Conde Ybul! Que afortunado tenerle tan pronto esta noche. Sin duda la Gala de hoy sera mas esplendida con usted y su honorable esposa presentes." saludo un viejo poni de aspecto poco elegante. Llevaba puesto un sombrero ajustado que se asemejaba mas a una gorra. Llevaba una escoba y otros equipos de limpieza lo que daba entender que se trataba mas de un sirviente que de un aristocrata.
+"¡Saludos, Gran Conde Ybul! Que sorpresa tenerle tan pronto esta noche. Sin duda la Gala de hoy sera mas esplendida con usted y su honorable esposa presentes." saludo un viejo poni de aspecto poco elegante pero de brillantes ojos verdes. Llevaba puesto un sombrero ajustado que se asemejaba mas a una gorra. Llevaba una escoba y otros equipos de limpieza lo que daba entender que se trataba mas de un sirviente que de un aristocrata.
 
-Al otro lado, el poni elegantemente vestido al que le hablaba, que se encontraba observando un brillante reloj de oro en su muñeca, se dio la vuelta con pausada calma haciendo notar el aire noble que lo rodeaba.
+Al otro lado, al que acababa de saludar , se encontraba un poni elegantemente vestido, quien observando un brillante reloj de oro en su muñeca, se dio la vuelta con pausada calma haciendo notar el aire noble que lo rodeaba.
 
-"Hoo Sr. Balun, por favor no hace falta que me llame con tanta formalidad, estamos entre conocidos. Ybul es suficiente."
+Era joven y de buen aspecto. Su cabello era corto pero abundante, de un color esmeralda brillante, su rostro oculto tras una media mascara blanca como el marmol dejaba ver una sonrisa limpia en una piel de color melon. Su cuerpo era delgado y bien formado, atletico se podia adivinar. Aunque su vestimenta era elegante, propia de un noble, tambien se veia ajustada y algo anticuada para el ambiente, dando la impresion de no ser propias de el.
+
+"Hoo Sr. Balun, por favor no hace falta que me llame con tanta formalidad, estamos entre conocidos. Llamarme Ybul es suficiente." respondio el joven con amabilidad, sus ojos eran tan verdes y claros como los del mismo Balun.
 
 "Que dices muchacho. ¿Como podria llamarle a alguien con su titulo de esta forma? Gran Conde Ybul eso es lo correcto. No necesitas ser tan modesto, usted es un Conde ahora y debe ser tratado como tal ¡que me diria la condesa si le hablara de esa forma! jajaja" rio con ganas el viejo Balun, aunque el tono de su voz era más de broma sus espesas cejas hacian notar que hablaba muy en serio.
 
@@ -110,7 +112,46 @@ Notando la mirada inflexible del joven conde, el viejo Balun se callo.
 
 "Ocurre algo"
 
-"Me temo que la noche de hoy podria no ser tan brillante como esperaba, mi estimado Sr. Balun. Mi amada esposa no se ha presentado aún. Es muy probable que las exigencias de la compañia hayan de privarnos de su presencia la noche de hoy."
+"Me temo que la noche de hoy podria no ser tan brillante como esperaba, mi estimado Sr. Balun. Mi amada esposa no se ha presentado aún. Es muy probable que las exigencias de sus deberes con la compañia naviera hayan de privarnos de su presencia."
+
+"Es lamentable escuchar eso. Esperaba verla de nuevo, ella es una yegua muy especial llena de dones. Aunque suele enredarse mucho en esos proyectos a los que tanto se dedica. ¿La esta cuidando bien, verdad?" pregunto Balun arqueando sus pronunciadas cejas.
+
+"Siempre, aunque es ella quien me termina cuidando a mi..." respondio Ybul con pesades.
+
+"Animo muchacho, asi son las grandes yeguas como ella, siempre detallosas y exigentes. Pero leales, se que nunca le dejarian sin motivo. Eso me recuerda ... ¿Como esta la joven Lun?"
+
+"Ahhh mi buen Balun, mi hija es otra ausencia mas en mis pensamientos, se suponia que la encontraria hoy temprano junto a su madre. Pero solo me encontrado con la falta de ambas y rumores de discordia entre ellas."
+
+"¿Discordia entre ellas? ¿Que ha pasado?" pregunto Balun con un tono de sorpresa.
+
+"No se muy bien, pero segun las sirvientas parece que han tenido una discusion muy seria apenas llegaron. No entiendo que podria ser, ya que las cartas que me enviaron antes de que partieran de Vaneisy no indicaban ningun problema de este tipo. En verdad Sr. Balun, esto es algo que me preocupa considerablemente." respondio Ybul con una mirada agobiada que mostraba la preocupacion que el conde habia estado tratando de ocultar.
+
+El viejo Balun, al ver la expresion de su joven amigo y ex-patron, se quedo pensativo y luego ladeo la cabeza.
+
+"Vaya, siendo asi empiezo a entender mejor la ausencia de la condesa. ¿Tal vez me equivocado en decir que seria una buena noche?"
+
+"Esperamos que no. Aunque mi esposa e hija no esten. Aun tengo un acompañante mas para la gala." respondio el joven, cambiando su expresion de tristeza a una mas tranquila.
+
+"Hooo. ¿Y quien es ese acompañante? ¿Un embajador de Vaneisy? ¿O tal vez un miembro de la familia real?" pregunto Balun con un repentino gran interes.
+
+"Ninguna de ambas, pero cerca. Es un embajador, si, pero no de Vaneisy. Y es un invitado directo de la familia real, tambien. Aunque me es totalmente desconocida su persona. Tengo entendido de que se tratan de dos damas y provienen de las tierras del continentales del norte"
+
+"Vaya eso si es una sorpresa. Han tenido que recorrer un largo camino para llegar hasta aqui. Una razon mas para verse como un gran conde y darles la bienvenida apropiada a nuestras tierras." dijo con orgullo el viejo Balun.
+
+El conde Ybul respondio con una sonrisa algo forzada. Abrio la boca para decir algo pero el viejo Balun fue mas rapido que el.
+
+"¿Y como se llaman estas ilustres damas?"
+
+"Ah ... me repito , pero no tengo los nombres completos de ambas. Se me informo bastante tarde sobre ellas y que debia ser su acompañante para las gala. Asi que tube que venir tan pronto como pude a su torre donde se hospedan. Las sirvientas reales de aqui solo me confirmaron que ambas estaban aqui."
+
+"Hoo si es asi entonces. No se diga mas. Vayamos a dentro de una vez y descubramos de quienes se tratan estas misteriosas damas." exclamo Balun con entusiasmo avanzando ya al camino que iba hacia la entrada de la torre. 
+
+El conde Ybul, con una mirada consternada, se apresuró para alcanzarlo.
+
+"Espere Balun, no debe apresurarse tanto. Ahi protocolos que deben ser respetados. No se olvide que estamos en el palacio real y no en nuestra casa. ¡Espere le digo!" exclamo el conde Ybul intentando detener sin exito a su viejo amigo quien seguia avanzando hacia la entrada.
+
+"No tenga tanto miedo en asuntos como esto Gran Conde Ybul. A las damas nunca se les debe hacer esperar." respondio el viejo Balun con una sonrisa confiada.
+
 
 
 
