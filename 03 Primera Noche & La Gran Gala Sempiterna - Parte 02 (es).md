@@ -82,17 +82,39 @@ Akito se dispuso a abrir, pero antes de dar un paso, una voz la detuvo.
 
 [---]
 
-El gran castillo de Abigail. Construido a principios del reinado de la dinastía Imanesa —los primeros monarcas de Rou— y concluido nueve generaciones después, precisamente cuando esta llegó a su fin. Es la construccion mas antigua y grande de toda la isla. Su edificación representó un esfuerzo titánico y trascendental en la historia del pequeño reino, cobrando tanto vidas como recursos materiales. Diseñado como una fortaleza contra invasores extranjeros y un refugio ante el impredecible clima de la región, el castillo llegó a albergar en su época dorada a casi el 80 % de la población. Sin embargo, en la actualidad, solo un 20 % de los habitantes del reino permanecen dentro de sus muros.
+El gran castillo de Abigail. Construido a principios del reinado de la dinastía Imanesa —los primeros monarcas de Rou— y concluido nueve generaciones después, precisamente cuando esta llegó a su fin. Es la construcción más antigua y grande de toda la isla. Su edificación representó un esfuerzo titánico y trascendental en la historia del pequeño reino, cobrando tanto vidas como recursos materiales. Diseñado como una fortaleza contra invasores extranjeros y un refugio ante el impredecible clima de la región, el castillo llegó a albergar en su época dorada a casi el 80 % de la población. Sin embargo, en la actualidad, solo un 20 % de los habitantes del reino permanecen dentro de sus muros.
 
 Los cambios en las dinastías, los desastres naturales y el desarrollo de formas de vida más seguras en la isla llevaron a la población a establecerse cerca de las costas. Además, el castillo ya no ofrece la misma seguridad que antaño.
 
-Flotando sobre un mar de lava, la fortaleza-ciudad-castillo ha perdido gran parte de su antigua gloria. En su época, imponentes murallas y torres perimetrales resguardaban sus dominios, pero los huracanes de fuego y las guerras contra la gente del mar han erosionado sus defensas, dejando expuestas sus zonas más emblemáticas y cubriendo de cenizas y escombros los sectores donde en el pasado había vivido la mayor parte del pueblo. Calles y complejos habitacionales enteros se hallaban clausurados, solo transitados por los soldados más experimentados del ejercito. 
+Flotando sobre un mar de lava, la fortaleza-ciudad-castillo ha perdido gran parte de su antigua gloria. En su época, imponentes murallas y torres perimetrales resguardaban sus dominios, pero los huracanes de fuego y las guerras contra la gente del mar han erosionado sus defensas, dejando expuestas sus zonas más emblemáticas y cubriendo de cenizas y escombros los sectores donde en el pasado había vivido la mayor parte del pueblo. Calles y complejos habitacionales enteros se hallaban clausurados, transitados solo por los soldados más experimentados del ejército.
 
-Siendo asi, estos niveles bajos del castillo y demas areas subterraneas, son fuente inagotable de historias y supersticiones. Para la nobleza, todo lo relacionado con estass ruinosas partes de la urbe, son visto con desprecio, a los que suelen referirse con el término "Imanuco", un apelativo despectivo sinonimo de desprestigio.
+Siendo así, estos niveles bajos del castillo y demás áreas subterráneas son fuente inagotable de historias y supersticiones. Para la nobleza, todo lo relacionado con estas ruinosas partes de la urbe es visto con desprecio, refiriéndose a ellas con el término "Imanuco", un apelativo despectivo sinónimo de desprestigio.
 
-A pesar de todo, la aristocracia del reino todavia sigue habitando el castillo de Abigail, precisamente los niveles altos del castillo. Las torres de vigilancia y los lujosos edificios residenciales al aire libre aún resplandecen con el brillo de la antigua prosperidad. Estos complejos, funcionales y meticulosamente conservados, son símbolo de estatus y privilegio. Y aun más vigente, en el presente, la actual dinastía a puesto un gran énfasis en remodelarlos, convirtiéndolos en recompensas exclusivas para los miembros más influyentes de la sociedad de Rou.
+A pesar de todo, la aristocracia del reino todavía sigue habitando el castillo de Abigail, especialmente en sus niveles altos. Las torres de vigilancia y los lujosos edificios residenciales al aire libre aún resplandecen con el brillo de la antigua prosperidad. Estos complejos, funcionales y meticulosamente conservados, son símbolo de estatus y privilegio. Más aún en el presente, donde la actual dinastía ha puesto un gran énfasis en remodelarlos, convirtiéndolos en recompensas exclusivas para los miembros más influyentes de la sociedad de Rou.
 
 [---]
+
+En el castillo de Abigail a pocos minutos del inicio de Gran Gala Sempiterna...
+
+"¡Saludos, Gran Conde Ybul! Que afortunado tenerle tan pronto esta noche. Sin duda la Gala de hoy sera mas esplendida con usted y su honorable esposa presentes." saludo un viejo poni de aspecto poco elegante. Llevaba puesto un sombrero ajustado que se asemejaba mas a una gorra. Llevaba una escoba y otros equipos de limpieza lo que daba entender que se trataba mas de un sirviente que de un aristocrata.
+
+Al otro lado, el poni elegantemente vestido al que le hablaba, que se encontraba observando un brillante reloj de oro en su muñeca, se dio la vuelta con pausada calma haciendo notar el aire noble que lo rodeaba.
+
+"Hoo Sr. Balun, por favor no hace falta que me llame con tanta formalidad, estamos entre conocidos. Ybul es suficiente."
+
+"Que dices muchacho. ¿Como podria llamarle a alguien con su titulo de esta forma? Gran Conde Ybul eso es lo correcto. No necesitas ser tan modesto, usted es un Conde ahora y debe ser tratado como tal ¡que me diria la condesa si le hablara de esa forma! jajaja" rio con ganas el viejo Balun, aunque el tono de su voz era más de broma sus espesas cejas hacian notar que hablaba muy en serio.
+
+El conde Ybul, no le respondio, entendia bien de lo que le hablaba el viejo sirviente de su familia. Pero no se encontraba tan de buen humor como para compartir su alegría en ese momento.
+
+Notando la mirada inflexible del joven conde, el viejo Balun se callo. 
+
+"Ocurre algo"
+
+"Me temo que la noche de hoy podria no ser tan brillante como esperaba, mi estimado Sr. Balun. Mi amada esposa no se ha presentado aún. Es muy probable que las exigencias de la compañia hayan de privarnos de su presencia la noche de hoy."
+
+
+
+
 
 
 
