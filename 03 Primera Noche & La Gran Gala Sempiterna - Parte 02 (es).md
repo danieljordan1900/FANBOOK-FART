@@ -94,9 +94,11 @@ A pesar de todo, la aristocracia del reino todavía sigue habitando el castillo 
 
 [---]
 
-En uno de los caminos dentro del castillo de Abigail, a pocos minutos del inicio de la Gran Gala Sempiterna...
+A pocos minutos del inicio de la Gran Gala Sempiterna...
 
-"¡Saludos, Gran Conde Ybul! Qué sorpresa tenerle tan pronto esta noche. Sin duda, la Gala de hoy será más espléndida con usted y su honorable esposa presentes", saludó un viejo poni de aspecto poco elegante, pero con brillantes ojos verdes. Llevaba un sombrero ajustado que se asemejaba más a una gorra. Sostenía una escoba y otros implementos de limpieza, lo que dejaba en claro que era un sirviente más que un aristócrata.
+Bajo la luz de unos faroles, en uno de los caminos residenciales dentro del castillo de Abigail.
+
+"¡Saludos, Gran Conde Ybul! Qué sorpresa tenerle tan pronto esta noche. Sin duda, la Gala de hoy será más espléndida con usted y su honorable esposa presentes", saludó un viejo poni de aspecto poco elegante que avanzaba por el camino. Tenia unos brillantes ojos verdes y llevaba un sombrero ajustado que se asemejaba más a una gorra. Sostenía una escoba y otros implementos de limpieza, lo que dejaba en claro que era un sirviente más que un aristócrata.
 
 Al otro lado, el destinatario del saludo era un poni elegantemente vestido, quien, observando un brillante reloj de oro en su muñeca, se giró con pausada calma, dejando notar el aire noble que lo rodeaba.
 
@@ -132,25 +134,40 @@ El viejo Balun, al ver la expresión de su joven amigo y ex patrón, se quedó p
 
 "Esperemos que no. Aunque mi esposa e hija no estén, aún tengo un acompañante más para la gala", respondió el joven, cambiando su expresión de tristeza por una más tranquila.
 
-"¿Ho? ¿Y quién es ese acompañante? ¿Un embajador de Vaneisy? ¿O tal vez un miembro de la familia real?", preguntó Balun con un repentino gran interés.
+"¿Ho? ¿Y quién es ese acompañante? ¿Un embajador de Vaneisy? ¿O tal vez un miembro de la familia real?", preguntó Balun, su interés repentino reflejado en el brillo de sus ojos.
 
-"Ninguna de ambas, pero cerca. Es un embajador, sí, pero no de Vaneisy. Y es un invitado directo de la familia real también. Aunque me es totalmente desconocida su persona. Tengo entendido que se trata de dos damas y que provienen de las tierras continentales del norte."
+"Ninguna de ambas, aunque cerca. Es un embajador, sí, pero no de Vaneisy. Además, es un invitado directo de la familia real", respondió Ybul con calma. "Aunque, en realidad, me es completamente desconocido. Tengo entendido que se trata de dos damas provenientes de las tierras continentales del norte: la embajadora de Equestria y su acompañante."
 
-"Vaya, eso sí es una sorpresa. Han tenido que recorrer un largo camino para llegar hasta aquí. Una razón más para verse como un gran conde y darles la bienvenida apropiada a nuestras tierras", dijo con orgullo el viejo Balun.
+"Vaya, eso sí que es una sorpresa. ¿Equestria, eh? Han tenido que recorrer un largo camino para llegar hasta aquí. Una razón más para que un gran conde como usted les dé la bienvenida apropiada a nuestras tierras", dijo el viejo Balun con orgullo.
 
-El conde Ybul respondió con una sonrisa algo forzada. Abrió la boca para decir algo, pero Balun fue más rápido.
+El conde Ybul respondió con una sonrisa algo forzada. Intento decir algo, pero Balun se le adelantó.
 
 "¿Y cómo se llaman estas ilustres damas?"
 
-"Ah... me repito, pero no tengo los nombres completos de ambas. Se me informó bastante tarde sobre ellas y sobre que debía ser su acompañante en la gala. Así que tuve que venir tan pronto como pude a su torre, donde se hospedan. Las sirvientas reales solo me confirmaron que ambas están aquí."
+"Ah... me repito, pero no tengo los nombres completos de ambas. Se me informó bastante tarde sobre su llegada y sobre mi papel como su acompañante en la gala. Así que vine tan pronto como pude a la torre donde se hospedan. Las sirvientas reales solo me confirmaron que ya están aquí."
 
-"Ho, si es así, entonces no se diga más. Vayamos adentro de una vez y descubramos de quiénes se tratan estas misteriosas damas", exclamó Balun con entusiasmo, avanzando por el camino que conducía a la entrada de la torre.
+Ambos ponis dirigieron sus miradas a la gran torre blanca que se alzaba a unos pasos de ellos.
+
+"Ho, si es así, entonces no se diga más. Vayamos de una vez y descubramos quiénes son estas misteriosas damas", exclamó Balun con entusiasmo, avanzando sin dudar por el camino que conducía a la entrada de la torre.
 
 El conde Ybul, con una mirada consternada, se apresuró para alcanzarlo.
 
-"Espere, Balun, no debe apresurarse tanto. Hay protocolos que deben respetarse. No olvide que estamos en el palacio real y no en nuestra casa. ¡Espere, le digo!", exclamó el conde Ybul, intentando detener, sin éxito, a su viejo amigo, quien seguía avanzando hacia la entrada.
+"Espere, Sr. Balun, no debe apresurarse tanto. Hay protocolos que deben respetarse. No olvide que estamos en el palacio real y no en nuestra casa. ¡Espere, le digo!", exclamó el joven conde, intentando detener, sin éxito, a su viejo amigo, quien ya subía las escalinatas con paso decidido.
 
-"No tenga tanto miedo en asuntos como estos, Gran Conde Ybul. A las damas nunca se les debe hacer esperar", respondió Balun con una sonrisa confiada.
+"No tenga tanto miedo en asuntos como estos, Gran Conde Ybul. A las damas nunca se les debe hacer esperar", respondió Balun con una sonrisa confiada que denotaba experiencia, llegando hasta la puerta de la torre. No obstante, no llegó a tocarla, pues, de improviso, esta se abrió y varias siluetas emergieron de su interior.
+
+Con una agilidad sorprendente para alguien de su edad, el viejo Balun retrocedió, descendiendo de las escalinatas con rapidez y colocándose junto al sorprendido conde Ybul, antes de que las sirvientas reales que salían de la torre notaran su presencia.
+
+"Gran Conde Ybul, le saludamos de nuevo. Nos regocija tenerlo presente esta noche", hablaron al unísono las sirvientas esqueléticas, alineadas en formación en la entrada de la torre. "Lamentamos los retrasos en su recibimiento, pero la embajadora de Equestria y su acompañante ya están listas."
+
+Acto seguido, las sirvientas se hicieron a un lado, dejando paso a las dos damas que aguardaban detrás de ellas.
+
+
+
+
+
+
+
 
 
 
