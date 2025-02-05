@@ -136,11 +136,11 @@ El viejo Balun, al ver la expresión de su joven amigo y ex patrón, se quedó p
 
 "¿Ho? ¿Y quién es ese acompañante? ¿Un embajador de Vaneisy? ¿O tal vez un miembro de la familia real?", preguntó Balun, su interés repentino reflejado en el brillo de sus ojos.
 
-"Ninguna de ambas, aunque cerca. Es un embajador, sí, pero no de Vaneisy. Además, es un invitado directo de la familia real", respondió Ybul con calma. "Aunque, en realidad, me es completamente desconocido. Tengo entendido que se trata de dos damas provenientes de las tierras continentales del norte: la embajadora de Equestria y su acompañante."
+"Ninguna de ambas, aunque cerca. Es un embajador, sí, pero no de Vaneisy. Además, es un invitado directo de la familia real", respondió Ybul con calma. "Aunque, en realidad, me es completamente desconocido. Tengo entendido que se trata de dos damas provenientes de las tierras continentales del norte: una embajadora del reino de Equestria y su acompañante."
 
 "Vaya, eso sí que es una sorpresa. ¿Equestria, eh? Han tenido que recorrer un largo camino para llegar hasta aquí. Una razón más para que un gran conde como usted les dé la bienvenida apropiada a nuestras tierras", dijo el viejo Balun con orgullo.
 
-El conde Ybul respondió con una sonrisa algo forzada. Intento decir algo, pero Balun se le adelantó.
+El conde Ybul respondió con una sonrisa algo forzada. Entendia bien a que se referia su ex-mayordomo, ademas de lo apasionado con esos temas diplomaticos. Intento decir algo, pero Balun se le adelantó.
 
 "¿Y cómo se llaman estas ilustres damas?"
 
@@ -150,17 +150,23 @@ Ambos ponis dirigieron sus miradas a la gran torre blanca que se alzaba a unos p
 
 "Ho, si es así, entonces no se diga más. Vayamos de una vez y descubramos quiénes son estas misteriosas damas", exclamó Balun con entusiasmo, avanzando sin dudar por el camino que conducía a la entrada de la torre.
 
-El conde Ybul, con una mirada consternada, se apresuró para alcanzarlo.
+El conde Ybul, con una tardo en reaccionar y consternado, se apresuró para alcanzarlo.
 
 "Espere, Sr. Balun, no debe apresurarse tanto. Hay protocolos que deben respetarse. No olvide que estamos en el palacio real y no en nuestra casa. ¡Espere, le digo!", exclamó el joven conde, intentando detener, sin éxito, a su viejo amigo, quien ya subía las escalinatas con paso decidido.
 
-"No tenga tanto miedo en asuntos como estos, Gran Conde Ybul. A las damas nunca se les debe hacer esperar", respondió Balun con una sonrisa confiada que denotaba experiencia, llegando hasta la puerta de la torre. No obstante, no llegó a tocarla, pues, de improviso, esta se abrió y varias siluetas emergieron de su interior.
+"No tenga tanta timides en asuntos como estos, Gran Conde Ybul. A las damas nunca se les debe hacer esperar", respondió Balun con una sonrisa confiada que denotaba experiencia, llegando hasta la puerta de la torre. No obstante, no llegó a tocarla, pues, de improviso, esta se abrió y varias siluetas emergieron de su interior.
 
 Con una agilidad sorprendente para alguien de su edad, el viejo Balun retrocedió, descendiendo de las escalinatas con rapidez y colocándose junto al sorprendido conde Ybul, antes de que las sirvientas reales que salían de la torre notaran su presencia.
 
-"Gran Conde Ybul, le saludamos de nuevo. Nos regocija tenerlo presente esta noche", hablaron al unísono las sirvientas esqueléticas, alineadas en formación en la entrada de la torre. "Lamentamos los retrasos en su recibimiento, pero la embajadora de Equestria y su acompañante ya están listas."
+"Gran Conde Ybul, le saludamos de nuevo. Nos regocija tenerlo presente esta noche", hablaron al unísono las sirvientas esqueléticas, alineadas en formación en la entrada de la torre. "Lamentamos los retrasos en su recibimiento, pero la embajadora de Equestria y su acompañante ya están listas para presentarse en la Gran Gala Sempiterna."
 
 Acto seguido, las sirvientas se hicieron a un lado, dejando paso a las dos damas que aguardaban detrás de ellas.
+
+Ambos corceles, a las puertas de la torre guardaron silencio, mirando sorpredidos la figura de las dos yeguas que con paso regio descendían las escalinatas...
+
+[---]
+
+Balun Boreal, el viejo mayordomo de la familia real.
 
 
 
