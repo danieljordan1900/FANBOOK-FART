@@ -166,29 +166,78 @@ Ambos corceles, a las puertas de la torre guardaron silencio, mirando sorpredido
 
 [---]
 
-Varios minutos despues ...
+Varios minutos después...
 
-Balun Boreal, el viejo ex-mayordomo de la familia Ybul, se encontraba dejando las instancias de la torre real del gran  castillo de Abigail. A sus lados aun un gran gentio de cortesanos y nobles, avanzaban por el camino para hacerse presente en la gala. El animos era intenso entre los recien llegados, susurros y chismes, se estallaban con intensidad aqui y haya, Balun podia imaginar cual era el tema de conversacion.
+Balun Boreal, el viejo ex-mayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos explotaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
 
-Mas bien ... 'quien' era el tema de conversacion.
+O más bien... quién era el tema de conversación.
 
-"Esa Yegua ..." penso recordando a la joven dama que acababa de conocer y despedirse hacia tan poco. 
+"Esa yegua..." pensó, recordando a la joven dama con la que acababa de encontrarse.
 
-¿Que podia pensar de ella? Definitvamente era una extranjera, alguien que no tenia conocimiento de las costumbres y de los peligros que hacechaban en reino de Rou.
+¿Quién habría imaginado que alguien así se presentaría esta noche? Definitivamente, una gran sorpresa. Sin duda era una extranjera, alguien ajena a las costumbres y a los peligros que acechaban en el reino de Rou.
 
-Sin embargo, era tambien una joven dama que irradiaba un imagen de seguridad y fuerte voluntad que opacaba por mucho el encanto de su singular belleza. En su larga experiencia como mayordomo, Balun habia conocido a muchas yeguas de la alta sociedad, pero muy pocas veces habia visto a algunas que compartieran aquel aire noble y santo que habia percibido en la joven dama.
+Sin embargo, irradiaba una imagen de seguridad y fuerte voluntad que opacaba por mucho el encanto de su singular belleza. En su larga experiencia como mayordomo, Balun había conocido a muchas yeguas de la alta sociedad, pero muy pocas poseían aquel aire noble y casi sagrado que había percibido en ella.
 
-A parte de esas grandes feminas, ¿habia alguien mas? ... si, penso de inmediato, pero le inquieto esa idea al recordar el rostro de esa otra persona.
+Aparte de aquellas grandes féminas del pasado, ¿había alguien más a esa altura?
+Sí... La respuesta acudió a su mente de inmediato, pero la idea lo inquietó. Recordar el rostro de esa otra persona le generó un desasosiego que no pudo ignorar.
 
-¿'El' y ella tenian algo en comun? ¿O eran solo extraña coincidencias? Aunque las pistas apuntaban a que si. Le era dificil aceptar que asi fuera.
+"Él" y ella tenían rasgos en común... ¿O eran solo extrañas coincidencias? Las pistas apuntaban a que sí, pero le resultaba difícil aceptarlo.
 
-"Sera una noche memorable ... " penso Balun, muy convecido de sus propias palabras.
+De ninguna forma podían ser el mismo tipo de persona.
 
-Asi, en medio de sus cabilaciones, el viejo mayordomo continuo avanzando por el camino, sin percatarse de la persona que avanzaba con prisa en sentido contrario.
+"Será una noche memorable..." pensó Balun, convencido de sus propias palabras.
 
+Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a la persona que avanzaba con prisa en dirección contraria.
 
+El choque fue inevitable.
 
+Balun apenas logró desviarse, pero aun así recibió el impacto de lleno y estuvo a punto de caer al suelo. Los cortesanos a su alrededor se giraron de inmediato, atentos al incidente.
 
+"¿Ah? ¿Quién...?" murmuró Balun, molesto, mientras recuperaba la compostura y se daba la vuelta.
+
+"Tenga más cuidado, anciano..." respondió una voz áspera y burlona. "Alguien de su nivel no debería confundir los caminos dorados de Abigail con las trochas de su rancho."
+
+"¿Qué? Tú... ¡Imanuco!" exclamó Balun con ira, reconociendo al encapuchado que le había cerrado el paso.
+
+Oculto tras vestimentas pardas, el recién llegado no pasó desapercibido. En cuestión de segundos, el ambiente se cargó de susurros condenatorios y miradas de desprecio.
+
+Imanuco también lo notó, pero lejos de intimidarse, sonrió con fiereza ante la multitud.
+
+"Grandes señores y señoras de Rou, ¿por qué esas caras largas? ¿Acaso no han oído las noticias de hoy?" Su tono era elegante, pero destilaba un veneno inconfundible. "Vengan, sonrían. Sirvan buen vino en sus copas. Un gran invitado ha llegado a honrarlos esta noche. ¡Disfruten y gócense de su presencia!"
+
+Tras lanzar una carcajada, dirigió una última mirada desagradable a todos a su alrededor y, sin que nadie lo detuviera, siguió su camino hacia las estancias reales de la torre.
+
+Balun lo observó alejarse con el ceño fruncido. No dijo nada. No hizo nada.
+
+Nadie en aquel lugar podía hacer algo al respecto.
+
+Pero dentro, en la gran torre...
+
+"Qué terrible tener a ese Imanuco aquí hoy, justo en el cumpleaños de la princesa Imaria. Arruinará toda la celebración que se le ha preparado", comentó con angustia una noble anciana que se había acercado al viejo mayordomo.
+
+Balun, sin embargo, no se amilanó. Volvió su atención a la anciana y a los demás nobles que ahora lo rodeaban.
+
+"No. Le espera una gran sorpresa a ese canalla. Haber venido hoy ha sido su mayor error. Estén en calma... porque esta noche, por fin, recibirá su merecido."
+
+Su voz, cargada de una seguridad absoluta, hizo que todos guardaran silencio.
+
+Los cortesanos se miraron entre sí, intrigados. Alguien se atrevió a preguntar:
+
+"¿Se refiere a la princesa Imaria?"
+
+Balun no respondió.
+
+Pero pronto otras voces se alzaron, comentando con creciente entusiasmo la misma idea.
+
+Balun, por su parte, solo tenía su mirada fija en el camino a la torre real.
+
+La silueta de Imanuco había desaparecido...
+
+El viejo mayordomo no se equivocaba.
+
+Tan cierto como el cielo de nueve lunas rojas...
+
+Aquella fue una noche memorable.
 
 
 
