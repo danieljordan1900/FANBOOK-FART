@@ -162,11 +162,32 @@ Con una agilidad sorprendente para alguien de su edad, el viejo Balun retrocedi�
 
 Acto seguido, las sirvientas se hicieron a un lado, dejando paso a las dos damas que aguardaban detrás de ellas.
 
-Ambos corceles, a las puertas de la torre guardaron silencio, mirando sorpredidos la figura de las dos yeguas que con paso regio descendían las escalinatas...
+Ambos corceles, a las puertas de la torre guardaron silencio, mirando sorpredidos la figura de las dos yeguas que con paso regio descendían las escalinatas, el tiempo parecia detenerse al paso de estas mientras una hermosa melodia de campanas comenzaba a repicar desde lo alto de la torre ...
 
 [---]
 
-Balun Boreal, el viejo mayordomo de la familia real.
+Varios minutos despues ...
+
+Balun Boreal, el viejo ex-mayordomo de la familia Ybul, se encontraba dejando las instancias de la torre real del gran  castillo de Abigail. A sus lados aun un gran gentio de cortesanos y nobles, avanzaban por el camino para hacerse presente en la gala. El animos era intenso entre los recien llegados, susurros y chismes, se estallaban con intensidad aqui y haya, Balun podia imaginar cual era el tema de conversacion.
+
+Mas bien ... 'quien' era el tema de conversacion.
+
+"Esa Yegua ..." penso recordando a la joven dama que acababa de conocer y despedirse hacia tan poco. 
+
+¿Que podia pensar de ella? Definitvamente era una extranjera, alguien que no tenia conocimiento de las costumbres y de los peligros que hacechaban en reino de Rou.
+
+Sin embargo, era tambien una joven dama que irradiaba un imagen de seguridad y fuerte voluntad que opacaba por mucho el encanto de su singular belleza. En su larga experiencia como mayordomo, Balun habia conocido a muchas yeguas de la alta sociedad, pero muy pocas veces habia visto a algunas que compartieran aquel aire noble y santo que habia percibido en la joven dama.
+
+A parte de esas grandes feminas, ¿habia alguien mas? ... si, penso de inmediato, pero le inquieto esa idea al recordar el rostro de esa otra persona.
+
+¿'El' y ella tenian algo en comun? ¿O eran solo extraña coincidencias? Aunque las pistas apuntaban a que si. Le era dificil aceptar que asi fuera.
+
+"Sera una noche memorable ... " penso Balun, muy convecido de sus propias palabras.
+
+Asi, en medio de sus cabilaciones, el viejo mayordomo continuo avanzando por el camino, sin percatarse de la persona que avanzaba con prisa en sentido contrario.
+
+
+
 
 
 
