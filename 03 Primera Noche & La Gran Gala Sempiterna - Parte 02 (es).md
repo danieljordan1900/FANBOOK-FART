@@ -238,31 +238,3 @@ El viejo mayordomo no se equivocaba.
 Tan cierto como el cielo de nueve lunas rojas...
 
 Aquella fue una noche memorable.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
