@@ -104,7 +104,7 @@ Alguien esperaba ...
 
 Al otro lado, el destinatario del saludo era un poni elegantemente vestido, quien, observando un brillante reloj de oro en su muñeca, se giró con pausada calma, dejando notar el aire noble que lo rodeaba.
 
-Era joven y de buen aspecto. Su melena, corta pero abundante, tenía un color esmeralda brillante. Su rostro, en parte oculto por una media máscara blanca como el mármol (semejante a un antifaz), dejaba ver una sonrisa impecable sobre su piel de tono melón. Su cuerpo, delgado y bien formado, insinuaba una complexión atlética. Aunque su vestimenta era propia de un noble, se veía ajustada y algo anticuada para el ambiente, como si no le perteneciera del todo.
+Era joven y de buen aspecto. Su melena, corta pero abundante, tenía un color esmeralda brillante. Su rostro, en parte oculto por una media máscara blanca como el mármol (semejante a un antifaz), dejaba ver una sonrisa impecable sobre su piel de tono melón. Su cuerpo, delgado y bien formado, insinuaba una complexión atlética. Aunque su vestimenta era propia de un noble, se veía ajustada y algo anticuada para su persona, como si no le perteneciera del todo.
 
 "Ho, Sr. Balun, por favor, no hace falta que me llame con tanta formalidad, estamos entre conocidos. Llamarme Ybul es suficiente", respondió el joven con amabilidad. Sus ojos, tan verdes y claros como los del mismo Balun, reflejaban un dejo de cansancio.
 
@@ -118,7 +118,7 @@ Notando la mirada inflexible del joven conde, Balun guardó silencio.
 
 "Me temo que la noche de hoy podría no ser tan brillante como esperaba, mi estimado Sr. Balun. Mi amada esposa no se ha presentado aún. Es muy probable que las exigencias de sus deberes con la compañía naviera nos priven de su presencia en la gala."
 
-"Es una lástima escuchar eso. Esperaba verla de nuevo, es una yegua muy especial, llena de dones. Aunque suele enredarse demasiado en esos proyectos a los que tanto se dedica. ¿La está cuidando bien, verdad?", preguntó Balun, arqueando sus pronunciadas cejas.
+"Es una lástima escuchar eso. Esperaba verla de nuevo, es una yegua muy especial, llena de dones. Aunque tambien con algunas desviaciones, solia enredarse demasiado en esos proyectos a los que tanto se dedica. ¿La está cuidando bien, verdad?", preguntó Balun, arqueando sus pronunciadas cejas.
 
 "Siempre... aunque es ella quien termina cuidándome a mí", respondió Ybul con pesadez.
 
@@ -142,7 +142,7 @@ El viejo Balun, al ver la expresión de su joven amigo y ex patrón, se quedó p
 
 "Vaya, eso sí que es una sorpresa. ¿Equestria, eh? Han tenido que recorrer un largo camino para llegar hasta aquí. Una razón más para que un gran conde como usted les dé la bienvenida apropiada a nuestras tierras", dijo el viejo Balun con orgullo.
 
-El conde Ybul respondió con una sonrisa algo forzada. Entendia bien a que se referia su ex-mayordomo, ademas de lo apasionado con esos temas diplomaticos. Intento decir algo, pero Balun se le adelantó.
+El conde Ybul respondió con una sonrisa algo forzada. Entendia bien a que se referia su ex-mayordomo, ademas de lo apasionado que se volvia al tratar con temas diplomaticos. Intento decir algo, pero Balun se le adelantó.
 
 "¿Y cómo se llaman estas ilustres damas?"
 
@@ -164,7 +164,7 @@ Con una agilidad sorprendente para alguien de su edad, el viejo Balun retrocedi�
 
 Acto seguido, las sirvientas se hicieron a un lado, dejando paso a las dos damas que aguardaban detrás de ellas.
 
-Ambos corceles, a las puertas de la torre, guardaron silencio, mirando sorprendidos la figura de las dos yeguas que, con paso regio, descendían las escalinatas. El tiempo parecía detenerse al paso de estas, mientras una hermosa melodía de campanas comenzaba a repicar desde lo alto de la torre...
+Ambos corceles, a las puertas de la torre, guardaron silencio, mirando sorprendidos la figura de las dos yeguas que, con paso regio, descendían las escalinatas. El tiempo parecía detenerse al paso de estas, mientras una inesperada y hermosa melodía de campanas comenzaba a repicar desde lo alto de la torre...
 
 Cerca de ellos, en el camino, la procesión de luces continuaba.
 
@@ -172,7 +172,7 @@ Cerca de ellos, en el camino, la procesión de luces continuaba.
 
 Varios minutos después...
 
-Balun Boreal, el viejo exmayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos estallaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
+Balun Boreal, el viejo ex-mayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos estallaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
 
 O más bien... quién era el tema de conversación.
 
@@ -183,6 +183,7 @@ O más bien... quién era el tema de conversación.
 Sin embargo, irradiaba una imagen de seguridad y fuerte voluntad que opacaba por mucho el encanto de su singular belleza. En su larga experiencia como mayordomo, Balun había conocido a muchas yeguas de la alta sociedad, pero muy pocas poseían aquel aire noble y casi sagrado que había percibido en ella.
 
 Aparte de aquellas grandes féminas del pasado, ¿había alguien más a esa altura?
+
 Sí... La respuesta acudió a su mente de inmediato, pero la idea lo inquietó. Recordar el rostro de esa otra persona le generó un desasosiego que no pudo ignorar.
 
 "Él" y ella tenían rasgos en común... ¿O eran solo extrañas coincidencias? Las pistas apuntaban a que sí, pero le resultaba difícil aceptarlo.
@@ -195,7 +196,7 @@ Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a 
 
 El choque fue inevitable.
 
-Balun apenas logró desviarse, pero aun así recibió el impacto de lleno y estuvo a punto de caer al suelo. Los cortesanos a su alrededor se giraron de inmediato, atentos al incidente.
+Balun apenas logró desviarse, pero aun así recibió el impacto de lleno y estuvo a punto de caer al suelo. Los cortesanos a su cercania se giraron de inmediato, atentos al incidente.
 
 "¿Ah? ¿Quién...?" murmuró Balun, molesto, mientras recuperaba la compostura y se daba la vuelta.
 
@@ -212,6 +213,7 @@ El 'Imanuco' también lo notó, pero lejos de intimidarse, sonrió con fiereza a
 Tras lanzar una carcajada, dirigió una última mirada desagradable a todos a su alrededor y, sin que nadie lo detuviera, siguió su camino hacia las estancias reales de la torre.
 
 Balun lo observó alejarse con el ceño fruncido. No dijo nada. No hizo nada.
+
 Nadie en aquel lugar podía hacer algo al respecto.
 
 Pero dentro, en la gran torre...
