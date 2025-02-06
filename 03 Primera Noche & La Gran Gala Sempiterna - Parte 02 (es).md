@@ -168,13 +168,13 @@ Ambos corceles, a las puertas de la torre guardaron silencio, mirando sorpredido
 
 Varios minutos después...
 
-Balun Boreal, el viejo ex-mayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos explotaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
+Balun Boreal, el viejo exmayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos estallaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
 
 O más bien... quién era el tema de conversación.
 
 "Esa yegua..." pensó, recordando a la joven dama con la que acababa de encontrarse.
 
-¿Quién habría imaginado que alguien así se presentaría esta noche? Definitivamente, una gran sorpresa. Sin duda era una extranjera, alguien ajena a las costumbres y a los peligros que acechaban en el reino de Rou.
+¿Quién habría imaginado que alguien así se presentaría esta noche? Sin duda, una gran sorpresa. Era evidente que era extranjera, alguien ajeno a las costumbres y a los peligros que acechaban en el reino de Rou.
 
 Sin embargo, irradiaba una imagen de seguridad y fuerte voluntad que opacaba por mucho el encanto de su singular belleza. En su larga experiencia como mayordomo, Balun había conocido a muchas yeguas de la alta sociedad, pero muy pocas poseían aquel aire noble y casi sagrado que había percibido en ella.
 
@@ -201,14 +201,13 @@ Balun apenas logró desviarse, pero aun así recibió el impacto de lleno y estu
 
 Oculto tras vestimentas pardas, el recién llegado no pasó desapercibido. En cuestión de segundos, el ambiente se cargó de susurros condenatorios y miradas de desprecio.
 
-Imanuco también lo notó, pero lejos de intimidarse, sonrió con fiereza ante la multitud.
+El 'Imanuco' también lo notó, pero lejos de intimidarse, sonrió con fiereza ante la multitud.
 
 "Grandes señores y señoras de Rou, ¿por qué esas caras largas? ¿Acaso no han oído las noticias de hoy?" Su tono era elegante, pero destilaba un veneno inconfundible. "Vengan, sonrían. Sirvan buen vino en sus copas. Un gran invitado ha llegado a honrarlos esta noche. ¡Disfruten y gócense de su presencia!"
 
 Tras lanzar una carcajada, dirigió una última mirada desagradable a todos a su alrededor y, sin que nadie lo detuviera, siguió su camino hacia las estancias reales de la torre.
 
 Balun lo observó alejarse con el ceño fruncido. No dijo nada. No hizo nada.
-
 Nadie en aquel lugar podía hacer algo al respecto.
 
 Pero dentro, en la gran torre...
@@ -225,9 +224,9 @@ Los cortesanos se miraron entre sí, intrigados. Alguien se atrevió a preguntar
 
 "¿Se refiere a la princesa Imaria?"
 
-Balun no respondió.
+Balun no respondió. En su mente apareció el rostro de la princesa, pero también el de otros...
 
-Pero pronto otras voces se alzaron, comentando con creciente entusiasmo la misma idea.
+La pregunta quedó flotando en el aire. Pronto, otras voces se alzaron como respuesta, comentando con creciente entusiasmo la misma idea.
 
 Balun, por su parte, solo tenía su mirada fija en el camino a la torre real.
 
