@@ -96,7 +96,9 @@ A pesar de todo, la aristocracia del reino todavía sigue habitando el castillo 
 
 A pocos minutos del inicio de la Gran Gala Sempiterna...
 
-Bajo la luz de unos faroles, en uno de los caminos residenciales dentro del castillo de Abigail.
+Bajo la luz de unos faroles, en medio de una procesión de luces en uno de los caminos principales dentro del castillo de Abigail.
+
+Alguien esperaba ...
 
 "¡Saludos, Gran Conde Ybul! Qué sorpresa tenerle tan pronto esta noche. Sin duda, la Gala de hoy será más espléndida con usted y su honorable esposa presentes", saludó un viejo poni de aspecto poco elegante que avanzaba por el camino. Tenia unos brillantes ojos verdes y llevaba un sombrero ajustado que se asemejaba más a una gorra. Sostenía una escoba y otros implementos de limpieza, lo que dejaba en claro que era un sirviente más que un aristócrata.
 
@@ -162,7 +164,9 @@ Con una agilidad sorprendente para alguien de su edad, el viejo Balun retrocedi�
 
 Acto seguido, las sirvientas se hicieron a un lado, dejando paso a las dos damas que aguardaban detrás de ellas.
 
-Ambos corceles, a las puertas de la torre guardaron silencio, mirando sorpredidos la figura de las dos yeguas que con paso regio descendían las escalinatas, el tiempo parecia detenerse al paso de estas mientras una hermosa melodia de campanas comenzaba a repicar desde lo alto de la torre ...
+Ambos corceles, a las puertas de la torre, guardaron silencio, mirando sorprendidos la figura de las dos yeguas que, con paso regio, descendían las escalinatas. El tiempo parecía detenerse al paso de estas, mientras una hermosa melodía de campanas comenzaba a repicar desde lo alto de la torre...
+
+Cerca de ellos, en el camino, la procesión de luces continuaba.
 
 [---]
 
