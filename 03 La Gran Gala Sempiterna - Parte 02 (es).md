@@ -200,7 +200,7 @@ De ninguna forma podían ser el mismo tipo de persona.
 
 "Será una noche memorable..." pensó Balun, convencido de sus propias palabras.
 
-Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a la persona que avanzaba con prisa en dirección contraria.
+Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a la individuo que avanzaba con prisa en dirección contraria.
 
 El choque fue inevitable.
 
