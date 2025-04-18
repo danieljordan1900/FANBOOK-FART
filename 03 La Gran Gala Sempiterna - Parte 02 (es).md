@@ -70,13 +70,13 @@ Un ligero atisbo de remordimiento cruzó el rostro de la Dr. Akito. Sin decir na
 
 La mirada de Fluttershy se endureció tras escuchar esas palabras. La imagen de los pequeños delfines y el destino incierto que les esperaba si regresaba con las pezuñas vacías pesaban en su corazón.
 
-Realmente quería alejarse de aquella gala de espectros y fantasmas. Deseaba irse de inmediato y olvidar todo esto. Pero tampoco podía permitirse huir. 
+Realmente quería alejarse de aquella gala de espectros y fantasmas. Deseaba irse de inmediato y olvidar todo esto. Pero tampoco podía permitirse huir de esa forma. 
 
 No renunciaria tan facil.
 
 Un golpe en la puerta interrumpió sus pensamientos.
 
-Akito se dispuso a abrir, pero antes de dar un paso, una voz la detuvo.
+Akito se dispuso a abrir, pero antes de dar un paso, una voz inesperada la detuvo.
 
 "Intentémoslo...", dijo Fluttershy. Esta vez, su tono era más firme que minutos atrás.
 
@@ -108,9 +108,13 @@ Era joven y de buen aspecto. Su melena, corta pero abundante, tenía un color es
 
 "Ho, Sr. Balun, por favor, no hace falta que me llame con tanta formalidad, estamos entre conocidos. Llamarme Ybul es suficiente", respondió el joven con amabilidad. Sus ojos, tan verdes y claros como los del mismo Balun, reflejaban un dejo de cansancio.
 
-"¿Qué dice, muchacho? ¿Cómo podría dirigirme a alguien con su título de esa manera? 'Gran Conde Ybul', eso es lo correcto. No necesita ser tan modesto, usted es un conde ahora y debe ser tratado como tal. ¡Qué me diría la condesa si le hablara de esa forma! Jajaja", rió con ganas el viejo Balun. Aunque el tono de su voz era bromista, sus espesas cejas indicaban que hablaba muy en serio.
+"¿Qué dice, muchacho? ¿Cómo podría dirigirme a alguien con su título de esa manera? 'Gran Conde Ybul', eso es lo correcto."
 
-El conde Ybul no le respondió. Entendía bien lo que le decía el viejo sirviente de su familia, pero no estaba de humor para compartir su alegría en ese momento.
+"Es verdad. Pero no puedo aceptar que una persona que es casi de mi familia me llame con ese título. Es demasiado formal para mi gusto."
+
+"No necesita ser tan modesto, usted es un conde ahora y debe ser tratado como tal. ¡Qué me diría la condesa si le hablara como a un plebeyo mas! Jajaja", rió con ganas el viejo Balun. Aunque el tono de su voz era bromista, sus espesas cejas indicaban que hablaba muy en serio.
+
+El conde Ybul no le respondió. Entendía bien lo que le decía el viejo sirviente de su hogar, pero no estaba de humor para compartir su alegría en ese momento.
 
 Notando la mirada inflexible del joven conde, Balun guardó silencio.
 
@@ -118,7 +122,7 @@ Notando la mirada inflexible del joven conde, Balun guardó silencio.
 
 "Me temo que la noche de hoy podría no ser tan brillante como esperaba, mi estimado Sr. Balun. Mi amada esposa no se ha presentado aún. Es muy probable que las exigencias de sus deberes con la compañía naviera nos priven de su presencia en la gala."
 
-"Es una lástima escuchar eso. Esperaba verla de nuevo, es una yegua muy especial, llena de dones. Aunque tambien con algunas desviaciones, solia enredarse demasiado en esos proyectos a los que tanto se dedica. ¿La está cuidando bien, verdad?", preguntó Balun, arqueando sus pronunciadas cejas.
+"Hooo ... es una lástima escuchar eso. Esperaba verla de nuevo, es una yegua muy especial, llena de dones. Aunque tambien con algunas desviaciones, solia enredarse demasiado en esos proyectos a los que tanto se dedica. ¿La está cuidando bien, verdad?", preguntó Balun, arqueando sus pronunciadas cejas.
 
 "Siempre... aunque es ella quien termina cuidándome a mí", respondió Ybul con pesadez.
 
@@ -138,9 +142,13 @@ El viejo Balun, al ver la expresión de su joven amigo y ex patrón, se quedó p
 
 "¿Ho? ¿Y quién es ese acompañante? ¿Un embajador de Vaneisy? ¿O tal vez un miembro de la familia real?", preguntó Balun, su interés repentino reflejado en el brillo de sus ojos.
 
-"Ninguna de ambas, aunque cerca. Es un embajador, sí, pero no de Vaneisy. Además, es un invitado directo de la familia real", respondió Ybul con calma. "Aunque, en realidad, me es completamente desconocido. Tengo entendido que se trata de dos damas provenientes de las tierras continentales del norte: una embajadora del reino de Equestria y su acompañante."
+"Ninguna de ambas, pero todas cerca. Es un embajador, sí, pero no de Vaneisy. Además, es un invitado directo de la familia real", respondió Ybul con calma. 
 
-"Vaya, eso sí que es una sorpresa. ¿Equestria, eh? Han tenido que recorrer un largo camino para llegar hasta aquí. Una razón más para que un gran conde como usted les dé la bienvenida apropiada a nuestras tierras", dijo el viejo Balun con orgullo.
+"¿Un invitado directo de la familia real? Sin duda debe tratarse de alguien importante", preguntó Balun con curiosidad.
+
+"Ciertamente, pero me es completamente desconocido hasta que punto. Tengo entendido que se trata de dos damas provenientes de las tierras continentales del norte: una embajadora del reino de Equestria y su acompañante."
+
+"Vaya, eso sí que es una sorpresa. ¿Equestria, eh? Han tenido que recorrer un largo camino para llegar hasta aquí. Una razón más para que un gran conde como usted les dé la bienvenida apropiada a nuestras ricas tierras", dijo el viejo Balun con orgullo.
 
 El conde Ybul respondió con una sonrisa algo forzada. Entendia bien a que se referia su ex-mayordomo, ademas de lo apasionado que se volvia al tratar con temas diplomaticos. Intento decir algo, pero Balun se le adelantó.
 
