@@ -134,17 +134,17 @@ Notando la mirada inflexible del joven conde, Balun guardó silencio.
 
 "No lo sé muy bien, pero según las sirvientas, parece que tuvieron una discusión muy seria apenas llegaron. No entiendo qué pudo haber sido, ya que las cartas que me enviaron antes de partir de Vaneisy no indicaban ningún problema de este tipo. En verdad, Sr. Balun, esto me preocupa considerablemente", respondió Ybul con una mirada agobiada que dejaba ver la inquietud que intentaba ocultar.
 
-El viejo Balun, al ver la expresión de su joven amigo y ex patrón, se quedó pensativo y luego ladeó la cabeza.
+El viejo Balun, al ver la expresión del joven, se quedó pensativo y luego ladeó la cabeza.
 
 "Vaya, siendo así, empiezo a entender mejor la ausencia de la condesa. ¿Tal vez me equivoqué en decir que sería una buena noche?"
 
-"Esperemos que no. Aunque mi esposa e hija no estén, aún tengo un acompañante más para la gala", respondió el joven, cambiando su expresión de tristeza por una más tranquila.
+"Esperemos que no. Aunque mi esposa e hija no estén, aún tengo un acompañante más para la gala", respondió el conde, cambiando su expresión de tristeza por una más tranquila.
 
 "¿Ho? ¿Y quién es ese acompañante? ¿Un embajador de Vaneisy? ¿O tal vez un miembro de la familia real?", preguntó Balun, su interés repentino reflejado en el brillo de sus ojos.
 
 "Ninguna de ambas, pero todas cerca. Es un embajador, sí, pero no de Vaneisy. Además, es un invitado directo de la familia real", respondió Ybul con calma. 
 
-"¿Un invitado directo de la familia real? Sin duda debe tratarse de alguien importante", preguntó Balun con curiosidad.
+"¿Un invitado directo de la familia real? Sin duda debe tratarse de alguien importante"
 
 "Ciertamente, pero me es completamente desconocido hasta que punto. Tengo entendido que se trata de dos damas provenientes de las tierras continentales del norte: una embajadora del reino de Equestria y su acompañante."
 
@@ -182,39 +182,39 @@ Varios minutos después...
 
 Balun Boreal, el viejo ex-mayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos estallaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
 
-O más bien... quién era el tema de conversación.
+O, más bien… quién era el tema de conversación.
 
-"Esa yegua..." pensó, recordando a la joven dama con la que acababa de encontrarse.
+"Esa yegua...", pensó, trotando con paso firme, mientras recordaba la imagen de la joven dama que acababa de conocer.
 
-¿Quién habría imaginado que alguien así se presentaría esta noche? Sin duda, una gran sorpresa. Era evidente que era extranjera, alguien ajeno a las costumbres y a los peligros que acechaban en el reino de Rou.
+¿Quién habría imaginado que alguien así se presentaría esta noche? Sin duda, una gran sorpresa. Una completa extranjera, ajena a las costumbres y a los peligros que acechaban en el reino de Rou.
 
-Sin embargo, irradiaba una imagen de seguridad y fuerte voluntad que opacaba por mucho el encanto de su singular belleza. En su larga experiencia como mayordomo, Balun había conocido a muchas yeguas de la alta sociedad, pero muy pocas poseían aquel aire noble y casi sagrado que había percibido en ella.
+Sin embargo, irradiaba un aura de seguridad y fuerte voluntad que opacaba, con creces, el encanto de su singular belleza. En su larga experiencia como mayordomo, Balun había conocido a muchas yeguas de la alta sociedad, pero muy pocas poseían aquel aire noble, casi sagrado, que había percibido en ella.
 
-Aparte de aquellas grandes féminas del pasado, ¿había alguien más a esa altura?
+Aparte de aquellas grandes féminas del pasado, la misma princesa y sus más cercanos… ¿había alguien más en el reino a esa altura?
 
-Sí... La respuesta acudió a su mente de inmediato, pero la idea lo inquietó. Recordar el rostro de esa otra persona le generó un desasosiego que no pudo ignorar.
+Sí... La respuesta acudió a su mente de inmediato, pero la idea lo inquietó. Recordar el rostro de esa otra persona le generó un desasosiego que no podía ignorar.
 
-"Él" y ella tenían rasgos en común... ¿O eran solo extrañas coincidencias? Las pistas apuntaban a que sí, pero le resultaba difícil aceptarlo.
+"Él" y ella compartían muchos rasgos... ¿O era solo una extraña coincidencia? Sus sentidos apuntaban a que no, pero le resultaba difícil aceptarlo.
 
-De ninguna forma podían ser el mismo tipo de persona.
+De ninguna forma podían ser el mismo tipo de persona. Era como comparar la noche con el día. Un conflicto entre ambos sería inevitable si llegaban a encontrarse. Pero… ¿no era precisamente la gala el momento más propicio para un encuentro de ese tipo?
 
-"Será una noche memorable..." pensó Balun, convencido de sus propias palabras.
+"Será una noche memorable...", pensó Balun, más convencido de sus propias palabras.
 
-Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a la individuo que avanzaba con prisa en dirección contraria.
+Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a la figura que se acercaba a toda prisa en dirección contraria.
 
 El choque fue inevitable.
 
-Balun apenas logró desviarse, pero aun así recibió el impacto de lleno y estuvo a punto de caer al suelo. Los cortesanos a su cercania se giraron de inmediato, atentos al incidente.
+Balun apenas logró apartarse, pero aun así recibió el impacto de lleno y estuvo a punto de caer al suelo. Los cortesanos cercanos se giraron de inmediato, atentos al incidente.
 
 "¿Ah? ¿Quién...?" murmuró Balun, molesto, mientras recuperaba la compostura y se daba la vuelta.
 
-"Tenga más cuidado, anciano..." respondió una voz áspera y burlona. "Alguien de su nivel no debería confundir los caminos dorados de Abigail con las trochas de su rancho."
+"Tenga más cuidado, anciano...", respondió una voz áspera y burlona. "Alguien de su nivel no debería confundir los caminos dorados de Abigail con las trochas de su rancho."
 
-"¿Qué? Tú... ¡Imanuco!" exclamó Balun con ira, reconociendo al encapuchado que le había cerrado el paso.
+"¿Qué? Tú... ¡Imanuco!", exclamó Balun con ira, reconociendo al encapuchado que le había cerrado el paso.
 
 Oculto tras vestimentas pardas, el recién llegado no pasó desapercibido. En cuestión de segundos, el ambiente se cargó de susurros condenatorios y miradas de desprecio.
 
-El 'Imanuco' también lo notó, pero lejos de intimidarse, sonrió con fiereza ante la multitud.
+El "Imanuco" también lo notó, pero lejos de intimidarse, sonrió con fiereza ante la multitud.
 
 "Grandes señores y señoras de Rou, ¿por qué esas caras largas? ¿Acaso no han oído las noticias de hoy?" Su tono era elegante, pero destilaba un veneno inconfundible. "Vengan, sonrían. Sirvan buen vino en sus copas. Un gran invitado ha llegado a honrarlos esta noche. ¡Disfruten y gócense de su presencia!"
 
@@ -230,7 +230,7 @@ Pero dentro, en la gran torre...
 
 Balun, sin embargo, no se amilanó. Volvió su atención a la anciana y a los demás nobles que ahora lo rodeaban.
 
-"No. Le espera una gran sorpresa a ese canalla. Haber venido hoy ha sido su mayor error. Estén en calma... porque esta noche, por fin, recibirá su merecido."
+"No. Le espera una gran sorpresa a ese canalla. Haber venido hoy ha sido su mayor error. Estén en calma… porque esta noche, por fin, recibirá su merecido."
 
 Su voz, cargada de una seguridad absoluta, hizo que todos guardaran silencio.
 
@@ -238,13 +238,13 @@ Los cortesanos se miraron entre sí, intrigados. Alguien se atrevió a preguntar
 
 "¿Se refiere a la princesa Imaria?"
 
-Balun no respondió. En su mente apareció el rostro de la princesa, pero también el de otros...
+Balun no respondió. En su mente apareció el rostro de la princesa… pero también el de otros.
 
 La pregunta quedó flotando en el aire. Pronto, otras voces se alzaron como respuesta, comentando con creciente entusiasmo la misma idea.
 
-Balun, por su parte, solo tenía su mirada fija en el camino a la torre real.
+Balun, por su parte, solo tenía la mirada fija en el camino hacia la torre real.
 
-La silueta de Imanuco había desaparecido...
+Mas alla de la puerta principal, la silueta de Imanuco había desaparecido...
 
 El viejo mayordomo no se equivocaba.
 
