@@ -180,11 +180,11 @@ Cerca de ellos, en el camino, la procesión de luces continuaba.
 
 Varios minutos después...
 
-Balun Boreal, el viejo ex-mayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos estallaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
+Balun Boreal, el viejo exmayordomo de la familia Ybul, abandonaba las estancias de la torre real del gran castillo de Abigail. A su alrededor, un bullicioso gentío de cortesanos y nobles avanzaba por el camino, ansiosos por hacerse presentes en la gala. El ánimo entre los recién llegados era intenso; susurros y murmullos estallaban aquí y allá como chispas en un brasero. Balun no necesitaba esforzarse para imaginar cuál era el tema de conversación.
 
 O, más bien… quién era el tema de conversación.
 
-"Esa yegua...", pensó, trotando con paso firme, mientras recordaba la imagen de la joven dama que acababa de conocer.
+"Esa yegua...", pensó, trotando con paso firme mientras recordaba la imagen de la joven dama que acababa de conocer.
 
 ¿Quién habría imaginado que alguien así se presentaría esta noche? Sin duda, una gran sorpresa. Una completa extranjera, ajena a las costumbres y a los peligros que acechaban en el reino de Rou.
 
@@ -192,7 +192,7 @@ Sin embargo, irradiaba un aura de seguridad y fuerte voluntad que opacaba, con c
 
 Aparte de aquellas grandes féminas del pasado, la misma princesa y sus más cercanos… ¿había alguien más en el reino a esa altura?
 
-Sí... La respuesta acudió a su mente de inmediato, pero la idea lo inquietó. Recordar el rostro de esa otra persona le generó un desasosiego que no podía ignorar.
+Sí... La respuesta acudió a su mente de inmediato, pero la idea lo inquietó. Recordar el rostro de esa otra persona le provocaba un desasosiego que no podía ignorar.
 
 "Él" y ella compartían muchos rasgos... ¿O era solo una extraña coincidencia? Sus sentidos apuntaban a que no, pero le resultaba difícil aceptarlo.
 
@@ -200,7 +200,7 @@ De ninguna forma podían ser el mismo tipo de persona. Era como comparar la noch
 
 "Será una noche memorable...", pensó Balun, más convencido de sus propias palabras.
 
-Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a la figura que se acercaba a toda prisa en dirección contraria.
+Sumido en sus cavilaciones, el viejo mayordomo continuó su camino, sin notar a la figura que se aproximaba con prisa en dirección contraria.
 
 El choque fue inevitable.
 
@@ -244,7 +244,7 @@ La pregunta quedó flotando en el aire. Pronto, otras voces se alzaron como resp
 
 Balun, por su parte, solo tenía la mirada fija en el camino hacia la torre real.
 
-Mas alla de la puerta principal, la silueta de Imanuco había desaparecido...
+Más allá de la puerta principal, la silueta de Imanuco había desaparecido...
 
 El viejo mayordomo no se equivocaba.
 
