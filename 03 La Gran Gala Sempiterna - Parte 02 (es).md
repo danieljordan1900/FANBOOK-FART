@@ -78,7 +78,7 @@ Un golpe en la puerta interrumpió sus pensamientos.
 
 Akito se dispuso a abrir, pero antes de dar un paso, una voz inesperada la detuvo.
 
-"Intentémoslo...", dijo Fluttershy. Esta vez, su tono era más firme que minutos atrás.
+"Intentémoslo...", dijo Fluttershy. Esta vez, su tono era más firme que minutos atrás. Afuera del edificio, la procesión de luces aguardaba ...
 
 [---]
 
