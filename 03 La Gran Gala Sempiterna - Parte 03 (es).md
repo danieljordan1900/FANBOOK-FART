@@ -2,7 +2,7 @@ La música resuena desde lo alto de la torre. Abajo, los pasos de muchos se deti
 
 Bella e irresistible, la figura que desciende en la entrada del gran edificio captura la atención de todos. Una visión única, cautivadora, imposible de ignorar.
 
-Más allá, ajenos al suceso, los demás —los mas comprometidos con el rigor de la ceremonia— continúan la procesión de luces, avanzando con solemnidad entre los ecos de un cántico solemne.
+Más allá, ajenos al suceso, los demás —los mas comprometidos con el rigor de la ceremonia— continúan la procesión de luces, avanzando con fervor entre los ecos de un cántico solemne.
 
 [---]
 
