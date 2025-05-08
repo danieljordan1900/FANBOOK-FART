@@ -9,7 +9,7 @@
     -> Evita rimas involuntarias y redondancias si es posible.
     -> Respeta el uso de comillas dobles "" no las reemplaces.
     -> Mantén la narrativa coherente, añade transiciones si es necesario.
-    -> Los dialogos deben ser propios de los personajes.
+    -> Los diálogos deben ser propios de los personajes.
 ]
 
 -> la escena inicia en los pasillos del castillo de Abigail

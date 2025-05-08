@@ -26,30 +26,39 @@ Ouuu... venid, oíd y cantad…
 
 [---]
 
-¿Había quedado dormido en su espera y ahora un ángel descendía para despertarlo? En aquel instante de ensoñación, el conde Ybul llegó a pensarlo sinceramente, aunque solo fuera por un momento. Sin embargo, el coro solemne a sus espaldas lo obligó a recuperar la compostura de inmediato. No, no podía estar soñando; jamás había perdido el conocimiento, y ninguno de sus anteriores descansos había estado colmado de tanta gracia.
+¿Había quedado dormido en su espera y ahora un ángel descendía para despertarlo? En aquel instante de ensoñación, el gran conde Ybul llegó a pensarlo sinceramente, aunque solo fuera por un momento. Sin embargo, el coro solemne a sus espaldas lo obligó a recuperar la compostura con esfuerzo. 
 
-En efecto, aquello era real. La hermosa yegua que descendía regia por las escalinatas de la torre no era una visión, aunque sus sentidos se resistieran a creerlo.
+No, no podía estar soñando; (pensaba para si mismo el conde) jamás había perdido el conocimiento, y ninguno de sus anteriores descansos había estado colmado de tanta gracia.
+
+La hermosa yegua que descendía regia por las blancas escalinatas de la torre no era una visión, aunque sus sentidos se resistieran a creerlo.
 
 "Hermosa..." se escuchó, como si alguien más hubiera pronunciado sus pensamientos en voz alta. A su lado, inmóvil, su viejo amigo Balun estaba tan conmovido como él.
 
-¿Cómo no estarlo ante semejante aparición?
+¿Cómo no estarlo ante semejante aparición en medio de la noche?
 
-Con cada paso, la joven se volvía más tangible ante sus ojos. Llevaba una melena rosa, suave como las flores en primavera, y su pelaje tenía el tono cálido y aterciopelado del durazno en su punto justo de maduración. Su cuerpo, proporcionado como el de cualquier otra yegua de su edad, destacaba por una silueta única y delicadamente armoniosa. Vestía un largo vestido rojo, bordado en oro, que se mecía suavemente al ritmo de su andar. A pesar de que el atuendo parecía formar parte de una indumentaria aún más refinada e incompleta, su discreta sencillez realzaba aún más su singular belleza.
+En efecto, aquello era real.
 
-Así, con pasos firmes pero cargados de una inexplicable timidez, la joven yegua terminó de bajar la escalera. Durante todo el descenso, conservó una sonrisa suave que al conde le evocaba el rostro de su madre. Finalmente, al encontrarse frente a frente, sus miradas se cruzaron. Y entonces, sucedió...
+Paso a paso, la joven yegua se volvía más tangible ante sus ojos. Llevaba una melena rosa, suave como las flores en primavera, y su pelaje tenía el tono cálido y aterciopelado del durazno en su punto justo de maduración. Su cuerpo, proporcionado como el de cualquier otra yegua de su edad, destacaba por una silueta única y delicadamente armoniosa. Vestía un largo vestido rojo, bordado en oro, que se mecía suavemente al ritmo de su andar. A pesar de que el atuendo parecía formar parte de una indumentaria aún más refinada e incompleta, su discreta sencillez realzaba aún más su singular belleza.
 
-Como si despertara de un trance, la yegua reaccionó de pronto y, con repentina urgencia, se dirigió hacia él.
+Así, e un avance firme pero cargado de una inexplicable timidez, la joven yegua alcanso los ultimos peldaños de la escalera. Durante todo el descenso, conservó una sonrisa suave y una mirada limpia de intenciones, como si nadie mas, aparte de ella misma, estuviera ahi. Finalmente, entre la luz de los altos faroles que vigilaban la entrada a la torre de invitados, el conde Ybul se hallo frente a frente a la doncella.  
+
+Como si despertara de un trance, la yegua reaccionó de pronto y, tras un breve de mirar a su alrrededor, sus miradas se cruzaron. Y entonces, sucedió...
+
+En un movimiento repentino cargado de urgencia, ella se dirigió hacia él.
 
 "Gran conde Ybul, me disculpo profundamente por mi tardanza. Por favor, acepte mis más sinceras disculpas por haberle hecho esperar tanto", dijo con voz afligida, agachando la cabeza una y otra vez.
 
-"¿Heee?" El pánico se apoderó de Ybul. Aquella escena, completamente fuera del protocolo, lo dejó sin palabras: la yegua que había hechizado sus sentidos ahora se humillaba públicamente frente a él, pronunciando su nombre.
+"¿Heee?" El pánico se apoderó de Ybul. Aquella escena, completamente fuera del protocolo, lo dejó sin palabras: la yegua que había hechizado sus sentidos ahora se humillaba públicamente frente a él, pronunciando su nombre aun cuando no la conocia.
 
-Sin poder responder de manera adecuada, dirigió una mirada de desconcierto a su viejo amigo Balun, quien no tardó en intervenir con la ayuda necesaria.
+Sin poder responder de manera adecuada, el conde dirigió una mirada de desconcierto a su viejo amigo Balun, quien no tardó en intervenir con la ayuda necesaria.
 
-"Espere, joven dama. Creo que nos estamos precipitando. No corresponde al joven conde un encuentro de esta naturaleza. Antes, nos agradaría mucho saber de quién recibimos tan sentidas disculpas", dijo el viejo Balun con un tono firme pero cortés, que revelaba su antigua profesión de mayordomo.
+"Espere, joven dama. Creo que nos estamos precipitando. No corresponde al gran conde ni mucho menos a su gentil persona un encuentro de esta naturaleza. Antes, nos agradaría mucho saber de quién recibimos tan sentidas disculpas", dijo el viejo Balun con un tono firme pero cortés, que revelaba su antigua profesión de mayordomo.
 
-"Ehhh... pero..." tartamudeó la joven yegua. No obstante, su acompañante —a quien todos habían perdido de vista— pareció susurrarle algo al oído. Entonces, ella se incorporó, visiblemente ruborizada, y con una postura más serena y respetuosa, volvió a hablar:
+"Ehhh... pero..." tartamudeó la joven yegua. No obstante, su acompañante —a quien todos habían perdido de vista y que vestia como medico de profesion- aparecio detras de ella y se acerco susurrandole algo al oído. Entonces, la joven yegua se incorporó, visiblemente ruborizada, y con una postura más serena y respetuosa, volvió a hablar:
 
-"Perdone... creo que será mejor empezar de nuevo."
+"Perdone... creo que será mejor empezar de nuevo." dijo terminando con una sonrisa dulce que hacia inutil cualquier enfado.
 
-Tanto el viejo Balun como la acompañante de la yegua asintieron al unísono. Detrás, las sirvientas inclinaron la cabeza y comenzaron a hablar, reanudando las presentaciones conforme al protocolo que había sido torpemente interrumpido.
+Tanto el viejo Balun como la compañera de la joven yegua asintieron al unísono de inmediato. Detrás, las sirvientas inclinaron la cabeza y, tomando una posicion intermedia, reanudaron las interrumpidas presentaciones protocolares que correspondian a aquel momento.
+
+
+
