@@ -48,17 +48,18 @@ En un movimiento repentino, cargado de urgencia, ella se dirigió hacia él.
 
 "Gran conde Ybul, me disculpo profundamente por mi tardanza. Por favor, acepte mis más sinceras disculpas por haberle hecho esperar tanto", dijo con voz afligida, agachando la cabeza una y otra vez.
 
-"¿Heee?" El pánico se apoderó de Ybul. Aquella escena, completamente fuera del protocolo, lo dejó sin palabras: la yegua que había hechizado sus sentidos ahora se humillaba públicamente frente a él, pronunciando su nombre aun cuando no la conocía.
+—¡¿Heeeeeee?! —gritó para sus adentros el conde Ybul. Aquella escena, completamente fuera del protocolo, lo dejó sin palabras: la yegua que había hechizado sus sentidos ahora se humillaba públicamente frente a él, pronunciando su nombre aun cuando no la conocía.
 
-Sin poder responder de manera adecuada, el conde dirigió una mirada de desconcierto a su viejo amigo Balun, quien no tardó en intervenir con la ayuda necesaria.
+Paralizado por la situación, el conde lanzó una mirada de auxilio a su viejo amigo, quien no tardó en intervenir con la ayuda necesaria.
 
 "Espere, joven dama. Creo que nos estamos precipitando. No corresponde al gran conde, ni mucho menos a su gentil persona, un encuentro de esta naturaleza. Antes, nos agradaría mucho saber de quién recibimos tan sentidas disculpas", dijo el viejo Balun con un tono firme pero cortés, que revelaba su antigua profesión de mayordomo.
 
-"Ehhh... pero..." tartamudeó la joven yegua. No obstante, su acompañante —a quien todos habían perdido de vista y que vestía como médico de profesión— apareció detrás de ella y se acercó, susurrándole algo al oído. Entonces, la joven yegua se incorporó, visiblemente ruborizada, y con una postura más serena y respetuosa, volvió a hablar:
+"Ehhh... pero..." tartamudeó la joven yegua. No obstante, su acompañante —a quien todos habían perdido de vista y que vestía como una doctora en labores— apareció detrás de ella y se acercó, susurrándole algo al oído. Tras esto, la joven yegua se incorporó, visiblemente ruborizada, y con una postura más serena y respetuosa, volvió a hablar:
 
 "Perdone... creo que será mejor empezar de nuevo", dijo, terminando con una sonrisa dulce que hacía inútil cualquier enfado.
 
-Tanto el viejo Balun como la compañera de la joven yegua asintieron al unísono de inmediato. Detrás, las sirvientas inclinaron la cabeza y, tomando una posición intermedia, reanudaron las interrumpidas presentaciones protocolares que correspondían a aquel momento.
+Tanto el viejo Balun como la doctora que acompañaba a la joven yegua asintieron al unísono. Detrás, las sirvientas inclinaron la cabeza y, tomando una posición intermedia, reanudaron las interrumpidas presentaciones protocolares que correspondían a aquel momento.
+
 
 
 
