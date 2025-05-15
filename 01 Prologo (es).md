@@ -4,7 +4,7 @@ La isla de Vaneisy, conocida por su exuberante fauna y su selva tropical, es un 
 
 En contraste, la isla de Rou presenta un paisaje radicalmente opuesto. Sus colinas de granito y basalto, rodeadas por ríos de lava que descienden desde un volcán activo, están envueltas en un clima perpetuamente tormentoso. Este ambiente, ya de por sí hostil, se agrava con la actividad sísmica que sacude regularmente la región. Como si esto no bastara, Rou es hogar tambien de una fauna extraña y hostil, que consolidan su reputación como un "pedacito del infierno en la tierra".
 
-No obstante. A pesar de todas estas condiciones adversas antes mencionadas, Rou es la isla más habitada del archipiélago Sparkor. Y esto se debe en gran medida a la intensa actividad minera que prospera en su superficie, ya que la isla es un paraíso geológico repleto de gemas y minerales únicos en el mundo.
+No obstante, a pesar de todas estas condiciones adversas, Rou es la isla más habitada del archipiélago Sparkor y hogar del homónimo reino de Rou, el cual prospera gracias a la intensa actividad minera en su superficie, ya que la isla es un paraíso geológico repleto de gemas y minerales únicos en todo el mundo.
 
 Tal es la riqueza del lugar que incluso el interior del volcán activo es explotado con fines mineros. Algo que no deberia de ser, dado lo peligrosa que resulta la tarea, pero que ocurre de todas formas con pleno conocimiento de los habitantes, quienes, en su incansable búsqueda de riquezas, están dispuestos a todo (incluso arriesgar sus propias vidas) con tal de prosperar en esa tierra tan inhóspita. La gran ciudad y los abarrotados puertos situados al norte de la isla son una prueba innegable de la bonanza del reino y la férrea determinación de su gente.
 

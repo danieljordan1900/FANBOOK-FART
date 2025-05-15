@@ -46,20 +46,42 @@ Como si despertara de un trance, la yegua reaccionó de pronto y, tras un breve 
 
 En un movimiento repentino, cargado de urgencia, ella se dirigió hacia él.
 
-"Gran conde Ybul, me disculpo profundamente por mi tardanza. Por favor, acepte mis más sinceras disculpas por haberle hecho esperar tanto", dijo con voz afligida, agachando la cabeza una y otra vez.
+"Gran conde Ybul, me disculpo profundamente por mi tardanza. Por favor, acepte mis más sinceras disculpas por haberle hecho esperar tanto", dijo con voz afligida, inclinando la cabeza una y otra vez.
 
 —¡¿Heeeeeee?! —gritó para sus adentros el conde Ybul. Aquella escena, completamente fuera del protocolo, lo dejó sin palabras: la yegua que había hechizado sus sentidos ahora se humillaba públicamente frente a él, pronunciando su nombre aun cuando no la conocía.
 
-Paralizado por la situación, el conde lanzó una mirada de auxilio a su viejo amigo, quien no tardó en intervenir con la ayuda necesaria.
+Paralizado por la situación, el conde lanzó una mirada de auxilio a su viejo amigo, quien no tardó en intervenir.
 
-"Espere, joven dama. Creo que nos estamos precipitando. No corresponde al gran conde, ni mucho menos a su gentil persona, un encuentro de esta naturaleza. Antes, nos agradaría mucho saber de quién recibimos tan sentidas disculpas", dijo el viejo Balun con un tono firme pero cortés, que revelaba su antigua profesión de mayordomo.
+"Espere, joven dama. Creo que nos estamos precipitando. No corresponde al gran conde, ni mucho menos a su gentil persona, un encuentro de esta naturaleza. Antes, nos agradaría mucho saber de quién recibimos tan sentidas disculpas", dijo el viejo Balun con un tono firme pero cortés, que delataba su antigua profesión de mayordomo.
 
-"Ehhh... pero..." tartamudeó la joven yegua. No obstante, su acompañante —a quien todos habían perdido de vista y que vestía como una doctora en labores— apareció detrás de ella y se acercó, susurrándole algo al oído. Tras esto, la joven yegua se incorporó, visiblemente ruborizada, y con una postura más serena y respetuosa, volvió a hablar:
+"Ehhh... pero..." tartamudeó la joven yegua. No obstante, su acompañante —a quien todos habían perdido de vista y que vestía como una doctora— apareció detrás de ella y se acercó, susurrándole algo al oído. Tras esto, la joven se incorporó, visiblemente ruborizada, y, adoptando una postura más serena y respetuosa, volvió a hablar:
 
 "Perdone... creo que será mejor empezar de nuevo", dijo, terminando con una sonrisa dulce que hacía inútil cualquier enfado.
 
-Tanto el viejo Balun como la doctora que acompañaba a la joven yegua asintieron al unísono. Detrás, las sirvientas inclinaron la cabeza y, tomando una posición intermedia, reanudaron las interrumpidas presentaciones protocolares que correspondían a aquel momento.
+Tanto el viejo Balun como la doctora que acompañaba a la joven asintieron al unísono. Detrás, las sirvientas inclinaron la cabeza y, tomando una posición intermedia, reanudaron las presentaciones protocolares correspondientes a aquel momento.
 
+Al unísono, la voz de las sirvientas se alzó en el lugar, llamando la atención de los presentes:
 
+"Ante ustedes, nobles de Rou, se presenta la honorable dama Fluttershy, embajadora del Reino de Equestria, en calidad de invitada especial de su Majestad la princesa Imaria Rouse. La acompaña también la doctora Akito..."
 
+"Fluttershy..." repitió el conde Ybul para sus adentros, cerrando suavemente los ojos, como si guardara el nombre en el baúl más preciado de su memoria. Se aseguró así de no olvidarlo aquella noche.
 
+"...del Reino de Vaneisy. Ambas, invitadas de honor a la gran gala sempiterna", concluyeron las sirvientas.
+
+De inmediato, el conde Ybul tomó la palabra.
+
+"Un placer conocerle, honorable embajadora Fluttershy", dijo con una leve inclinación de cabeza y la voz más firme que pudo reunir. "Me honra profundamente ser su acompañante esta noche, y honra también al Reino de Rou con su visita." Había hablado con una naturalidad que incluso lo sorprendió a sí mismo, pues aún podía escuchar el intenso latido de su corazón.
+
+"Yo... también me siento muy honrada de conocerle, gran conde... Ybul", respondió ella, con una mirada breve pero significativa. "Espero que esta noche tengamos algún momento para conversar... y conocernos mejor."
+
+"Por supuesto. Lo esperaré con gusto, embajadora Fluttershy", respondió él, con una sonrisa leve que apenas se permitió. Luego, tomó el casco de Fluttershy y lo besó suavemente como parte del protocolo de bienvenida. En su interior, las emociones aún no se calmaban, y su rostro levemente sonrojado no pasó desapercibido para nadie.
+
+El viejo Balun, notando esto, dio un paso adelante:
+
+"Mi señor, es hora", dijo, lanzando una mirada hacia la torre que se alzaba en la distancia.
+
+La torre real del castillo Abigail se erguía imponente, decorada con estandartes dorados que ondeaban suavemente en el viento de la noche.
+
+Ybul asintió y, tras hacer una reverencia a la joven yegua, comenzó su trayecto hacia la gran torre. A su izquierda marchaba el viejo Balun; a su derecha, Fluttershy, acompañada por la doctora Akito. Delante de ellos, abriendo paso entre los curiosos y otros nobles congregados, las sirvientas encabezaban la comitiva.
+
+Lentamente, bajo el repicar de las campanas que aún resonaban en lo alto, el grupo terminó por fundirse entre la multitud que se dirigía hacia la torre real.
