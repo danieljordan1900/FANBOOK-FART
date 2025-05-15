@@ -32,7 +32,7 @@ No, no podía estar soñando —pensaba para sí mismo el conde—; jamás habí
 
 La hermosa yegua que descendía, regia, por las blancas escalinatas de la torre no era una visión, aunque sus sentidos se resistieran a creerlo.
 
-"Hermosa..." se escuchó, como si alguien más hubiera pronunciado sus pensamientos en voz alta. A su lado, inmóvil, su viejo amigo Balun estaba tan conmovido como él.
+"Hermosa..." se escuchó, como si alguien más pronunciara sus pensamientos en voz alta. A su lado, inmóvil, su viejo amigo Balun estaba tan conmovido como él.
 
 ¿Cómo no estarlo ante semejante aparición en medio de la noche?
 
@@ -70,18 +70,26 @@ Al unísono, la voz de las sirvientas se alzó en el lugar, llamando la atenció
 
 De inmediato, el conde Ybul tomó la palabra.
 
-"Un placer conocerle, honorable embajadora Fluttershy", dijo con una leve inclinación de cabeza y la voz más firme que pudo reunir. "Me honra profundamente ser su acompañante esta noche, y honra también al Reino de Rou con su visita." Había hablado con una naturalidad que incluso lo sorprendió a sí mismo, pues aún podía escuchar el intenso latido de su corazón.
+"Un placer conocerle, honorable embajadora Fluttershy", dijo con una leve inclinación de cabeza y la voz más firme que pudo reunir. "Me honra profundamente ser su acompañante esta noche, y honra también al Reino de Rou con su visita." Había hablado con una naturalidad que incluso lo sorprendió a sí mismo, pues aún podía escuchar el intenso latido de su corazón. ¿Hacía cuánto no sentía emociones así en su interior? ¿Desde su juventud acaso, cuando conocio a su primer amor ...?
+
+Pero los pensamientos del conde no pudieron ir mas lejos, pues la voz de la joven yegua se dirigio hacia el nuevamente.
 
 "Yo... también me siento muy honrada de conocerle, gran conde... Ybul", respondió ella, con una mirada breve pero significativa. "Espero que esta noche tengamos algún momento para conversar... y conocernos mejor."
 
-"Por supuesto. Lo esperaré con gusto, embajadora Fluttershy", respondió él, con una sonrisa leve que apenas se permitió. Luego, tomó el casco de Fluttershy y lo besó suavemente como parte del protocolo de bienvenida. En su interior, las emociones aún no se calmaban, y su rostro levemente sonrojado no pasó desapercibido para nadie.
+"Por supuesto. Lo esperaré con gusto, embajadora Fluttershy", respondió él, con una sonrisa leve que apenas se permitió. Luego, tomó el casco de Fluttershy y lo besó suavemente dando asi por finalizada la bienvenida protocolar. En su interior, las emociones aún no se calmaban, y su rostro levemente sonrojado no pasó desapercibido para nadie.
 
 El viejo Balun, notando esto, dio un paso adelante:
 
 "Mi señor, es hora", dijo, lanzando una mirada hacia la torre que se alzaba en la distancia.
 
-La torre real del castillo Abigail se erguía imponente, decorada con estandartes dorados que ondeaban suavemente en el viento de la noche.
+La torre real del castillo Abigail se erguía imponente, decorada con estandartes dorados que ondeaban fulgurantes en el viento de la noche.
 
-Ybul asintió y, tras hacer una reverencia a la joven yegua, comenzó su trayecto hacia la gran torre. A su izquierda marchaba el viejo Balun; a su derecha, Fluttershy, acompañada por la doctora Akito. Delante de ellos, abriendo paso entre los curiosos y otros nobles congregados, las sirvientas encabezaban la comitiva.
+Volviendo sus pensamientos a la realidad. Ybul asintió y, tras hacer una reverencia a la joven yegua, comenzó su trayecto hacia la gran torre. A su izquierda marchaba el viejo Balun; a su derecha, Fluttershy, acompañada por la doctora Akito. Delante de ellos, abriendo paso entre los curiosos y otros nobles congregados, las sirvientas encabezaban la comitiva.
 
 Lentamente, bajo el repicar de las campanas que aún resonaban en lo alto, el grupo terminó por fundirse entre la multitud que se dirigía hacia la torre real.
+
+Durante el camino, Ybul lanzaba breves miradas de reojo a su acompañante embajadora, pero ella no parecía mostrar interés en él. En cambio, observaba sin expresión a las personas que desfilaban delante de ellos.
+
+"Qué porte tiene... se parece también en eso a ella...", pensó el conde, evocando la imagen de su esposa, sin notar las diminutas perlas brillantes que descendían silenciosas desde la frente de la joven yegua...
+
+[---]
